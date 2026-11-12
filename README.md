@@ -5,7 +5,9 @@ url: https://museumofvestigialdesire.net/
 
 # Museum of Vestigial Desire (MoVD)
 
-----
+The function of a museum is to create a fixed content pool with a uniform type of content. When such a uniform kind of content is created, it becomes a body that establishes a radioactive presence of its own. Museums are theatres, sites of history as well as spaces for performance. ‘Museum of Vestigial Desire’ is one such museum.
+
+© 2012-26 All texts by [Prayas Abhinav](https://prayasabhinav.net/)
 
 ---
 
