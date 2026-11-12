@@ -1,0 +1,12 @@
+---
+title: "Self-manipulation"
+url: https://museumofvestigialdesire.net/functions/laborataries/the-surface-of-knowledge-2/self-manipulation
+date: 10-02-2015
+tags: ["sshop"]
+---
+
+# Self-manipulation
+
+When you are able to get over your own hunger, you will be able to perform self-manipulation. Till that point you will remain vulnerable. You will remain vulnerable because your hunger will make you do things that are not in your best interest. But what is the best interest? Where does our sense of priority about a set of possible outcomes come from? The best outcomes are considered in relation to our own objectives. We are desiring machines. We do not just desire outcomes, we desire causal chains of outcomes. This requires us to remain clued into the decisions that we make and their possible repercussions. Our hunger, or the intensity of our desire opens us to foul play that other actors in the field might want to trap us in. This is not an uncommon idea. We know how we entrap animals belonging to other species by offering them what they cannot resist and then attack them when their guard is down. But how do break this loop? Eventually the narrative has to move on, so we will be preyed upon as definitely as we prey upon others. There is no tactic that guarantees us an invincible and immortal position permanently. But we are interested in prolonging our survival. And that is a plausible desire.
+
+We can manage to rise above in the food-chain if we start preying on ourselves. We need to seek out our own vulnerabilities as sharply as we do in our prey. We are own prey. Exploiting our own hunger can become a workable method for making us take decisions that allows us to trick anyone who wants to follow our tracks. We need to violate our own thematic in order to outwit those who want to delegate us to it. Getting over our hunger does not mean that we suppress our hunger or that we control it. It is not possible to manage our hunger. He truth is that our hunger manages us and we must acknowledge that. To configure this management in our favour, we just need to redirect the orientation of our hunger. Instead of seeking fulfilment from the world, we need to seek it from ourselves. When we do that, we separate our desire from our actions. We add a filter in between. This filter interprets our desire in a way that makes this process equally meaningful as anything else that we plan to do consciously. Instead of being a puppet, we become our own puppet masters.

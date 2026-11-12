@@ -1,0 +1,30 @@
+---
+title: "Museums-in-Museums"
+url: https://museumofvestigialdesire.net/functions/laborataries/museums-in-museums
+date: 26-03-2015
+tags: ["sink"]
+---
+
+# Museums-in-Museums
+
+Frames do not exist in isolation. They contain but also they are containers. A museum is not just a frame. It is frame that can hold other frames. This meta-ability is a choice but also it is a compulsion. The satisfaction of being can only be matched by becoming a facilitative being. A terminal can only be trumped by a server. But such a facilitative being is not easily realised. Who should be facilitated? Who is worth it? Who is magnified at the appropriate scale? 
+
+In the absence of sufficiently developed stories, should the storytellers just read the names of the stories again and again?  If we do not have something, should we wait or should we make it up. Making things up is accompanied by a discomfort. How can we allow ourselves to be so self-serving? The matter at hand is about being able to consider working with the theatre of scale appropriately.  We offer a frame that fits neatly inside the widest available frame. There is no empty space to manoeuvre. If you know what snug means, you can expect snug. We identify gaps and we germinate seeds that we transplant into the gaps so that the emergent frame can optimally fill up the gap. We are interested in museums as containers of other containers. We see museums as containers of mere items sometimes. This does not require us to work hard enough to position what we experience in our imagination. Surely what we get can't be what we are meant to get? 
+
+We like apartment blocks more than houses standing on their own distinct plot of land. Apartment blocks are frames that exist to merely lead us to the individual apartments. They do not have any function. Once we are at our destination, we knock or ring the bell if there is one and then proceed to go in. Once we are inside, we are in another world. From the container, we enter another container. Like a fridge inside the house, like a television on a television screen, like a story within a story, like an apartment block. Museums appeal to us because then we can carry on our business of catchment-building and containment. We flood the premises that we enter and we flood it with noise. After the initial moment of rupture, the deluge begins to subside. This event allows us to map and understand boundaries based on the slopes and depths of various flows. We of course behave ourselves because this process is only possible if we scan the landscape and figure out a strategy for navigation. Structures and pathways already exist. We are only guests. We can only play with optics, we can reflect, refract and colour frames with different lenses.
+
+[](#enclosures)
+<a name="enclosures"></a> 
+### Enclosures
+
+When we picture something inside something we picture it in a different light. Our mind imagines space and then fabricates it. If our minds didn't do that then our imagination would be trapped within the confines of where we are. And that is plain ridiculous. One of the only reasons we find it tolerable to keep living is the possibility of being absolute irresponsible in our imagination. This irresponsibility is without an anchor. But is also without any allegiance. It doesn't have ours or anybody else's interests at heart and we need to be hold it with a certain amount of suspicion. The easiest way for mischief to enter our waking consciousness is through our idle imagination. Imagination is not innocent. 
+
+So, when we consider enclosures, when we think of museums inside other museums, then the volume that we imagine is speculative in nature. We are not as precise as cartographers but we are as generous as gamblers. When we are considering a prospective space, we do not need precision at all. Those who need security before they place a bet on the unknown potential of a container will not be able to summon the courage of even placing the container in their midst. 
+
+Museums as containers within containers take courageous bets. 
+
+They schedule and place containers before they have even opened the containers to verify what they contain. This is the only way of dealing with the future. The future will not wait. After it has risen out of the rumble and noise of the present, the bets are closed. And once the bets are closed, the valuations are fixed. Once the valuations are fixed it is not possible to negotiate anymore. 
+
+The container might be engaged in the business of celebration, but strangely enough as the level of magnification changes, this is not possible anymore. From celebration, to prospecting, the difference is not huge. The latter serves the former. If you celebrate something once, how can you celebrate it again? This is the problem of celebration, either it is earnest with emotion or it is a ritual. It cannot be both. Museums know that they are on a moving platform, they cannot hold on to anything. By containing containers, museums are able to safeguard their interests. They are able to swim against the current, navigate paradoxes. 
+
+Very naturally, as you move closer to things, they appear to be bigger. This instability of the perception of scale makes it possible for distortions and illusions to be constructed. Scale is anything but a simple parameter. When containers enter containers, our view gets obstructed and the absolute scope of scale gets reset. This allows new effigies to be built with as light a touch and casual an undertaking as any. This is only an important part of furthering the cycle. The cycle is not an analysis. It is a process. We might know a process is a process but that does not render it obsolete. How we know the cycle and what we know of it is a small part of all the elements in the cycle. What we call a cycle could be a mere chain-link in a bigger cycle too. This need not overwhelm us, but knowing this we can rest easy amongst the fluid and fickle lot without needing to feign any fixity except the questions that we find ourselves asking repeatedly.

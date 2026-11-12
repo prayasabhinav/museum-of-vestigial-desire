@@ -1,0 +1,16 @@
+---
+title: "Narrative"
+url: https://museumofvestigialdesire.net/functions/laborataries/the-labour-of-reading/narrative
+date: 13-10-2014
+tags: ["dust"]
+---
+
+# Narrative
+
+Narrative is a container. It carries threads from which a fabric of meaning and continuity can be woven by the navigator of the narrative. But the narrative cannot be pre-constructed. Because there is a necessary gap between transmission and reception. Whatever is transmitted is not received in that form. If a narrative is propagated, only a fragment of it is ever going to be grasped. Because immersion is a matter of degrees. And this degree determines the quality of experience. It is one thing to encode and quite another to decode. Else a buzz of intensity and content will definitely be felt but nothing else. Equally important as it is to master the complex science of closely packing content into surfaces, it is as important to design pedagogical methods to train prospective audiences to parse these surfaces. Each communicative urge also needs to be accompanied by a helpful set of methods to receive and successfully parse the communication. Else the risk of it lying like an undetonated bomb at the gates of potential receptors. And we cannot have so many undetonated bombs. Because, that leads us to a problem of surplus that cannot be resolved easily. Surplus means that each individual item cannot be taken seriously. Each specific item cannot be indulged in and requisitioned for content.
+
+If this cannot be done, if only certain entities are to possess content with the originary spirit then the process of seeking becomes errant and random. The process gets baffled. To which entity to place a request and to which entity to give up on? There are two ways of resolving this dilemma. One is to give up on the expectation of reception entirely and the other is to insist on the non performing entities to deliver. We do not think that the first choice is viable. Because if we make that choice, our civilisation’s core will crumble. The structural basis of the construction that we live in relies on being constantly fed more and more constructions. If the supply is cut off, there is a genuine risk of our running out of rope. We have to take the second option.
+
+And going further with that option involves the co-location of the productive faculties of learning and production. We cannot dump our content into the world without worrying about who is going to pick it up. Rather than dumping waste we need to relate to our content like a valuable product and plan its distribution and eventual consumption with as much strategy as the specific choices that we make in its production. This process will help us in recouping the investment to be able to plough it back. We cannot take our quantum and continuity of production for granted. It is not difficult to get lost. For sharpness to become blunt is not very difficult. In fact it is quite easy. 
+
+Narrative comes to the rescue here in some ways. For it can become the pathway of learning as well as the container within which the reward can be gently placed. The narrative can clearly distinguish between the reward and the pathway, avoiding any conflict between the two without aspiring for any position for itself. After relishing the prize, the container can be discarded.

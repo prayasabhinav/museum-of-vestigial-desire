@@ -1,0 +1,16 @@
+---
+title: "Uncertainty"
+url: https://museumofvestigialdesire.net/functions/laborataries/the-surface-of-knowledge-2/uncertainty
+date: 16-03-2015
+tags: ["island"]
+---
+
+# Uncertainty
+
+We are certain of only one thing and that is that we know the finite nature of the rope that we are strung on. We know that we do not have too much of a margin and manoeuvrability. There is nothing that we are going to be able to do if we do not factor into our imagination the constraints within which we live in. Only those who can figure out how to manipulate and extrapolate on the basis of what is reasonably possible in a given system are able to manipulate it well. This is often associated with a game, playing the game or gaming the system are phenomenons the are associated with actors who are able to create distance between themselves and their projections. This distance does not occupy any space. It only hides the fact that they do not exist. Distance is just the acknowledgment that both the self and the projection cannot be accepted as true. One of the two is definitely an illusion but which is which cannot be figured easily and that is the uncertainty that we must live with.
+
+Living with this uncertainty does not mean we seek out ways to make easier decisions. Decisions need to be as difficult and pain-staking as possible to prevent us from deciding frivolously. But once we decide we need to have the gumption of being able to live with our decisions. We can also be fickle-minded and change our decisions as often as possible. But if the system cannot predict how we take decisions then it will not offer us sufficient choices. The fickle-minded cannot be understood easily. Not being understood does not help us in our pursuit of colonising a part of the world as our territory. Not being understood and being OK with that is a way of blurring our own presence on the landscape. But we do not like the perceived import of decisions. They come across as important, absolute and irreversible. Such fixed states cannot exist. Absolute frames of mind eventually melt away and get shredded by the edge of time. To think that anything can withstand the corrosive surface of time is a mistake.
+
+Uncertainty is the best way to learn. When we commit to doing something but we have no idea how to go about it, we leap out into the unknown. At that point in time, we do not know what is coming. We do not know where we are headed. But that is exactly the point when emergence happens. Emergence works differently than the colonising impulse. It is more similar to the eruption of a volcano that leaves a patch of new land behind. Discovery of new territory is only really possible of that urge to discover is lusting after these new patches of land. Else discovery is only re-discovery. 
+
+Re-discovery has the potential to uncover fresh perspectives as well. Saying something which has been said many time before is worth it for the actual act of saying. The act of saying includes the timing, tonality and the value of repetition. These elements are the parameters that configure the essence of the new. A new perspective does not need to unique in all the records of history. It only needs to be confounding in perception. In the confounding blur of the perception, learning happens by default.

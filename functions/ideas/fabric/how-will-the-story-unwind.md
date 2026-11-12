@@ -1,0 +1,14 @@
+---
+title: "How will the story unwind?"
+url: https://museumofvestigialdesire.net/functions/ideas/fabric/how-will-the-story-unwind
+date: 2022-12-23
+tags: ["rain"]
+---
+
+# How will the story unwind?
+
+Ideas float around in the air. There is no reason to know how to implement the idea just because you got access to the idea itself. A million different ways exist for implementing each idea that you come across. But which of these ways are going to be yours. That is the question. With so many options, actors need to constantly be alert and vigilant. They cannot afford to make mistakes. So besides access, actors also need a schematic of the future. Which action will lead to which consequence? How will their personal story shape? All actors who hope to end up with an outcome that they can live with, need to have answers to this questions. Others do too — because being an actor means you want to play to win. It means you do not have any emotions invested in the game. Actors who have emotions invested in the game are called agents. They care about the nature of the outcome of the story and they play an active role in shaping the story so that it turns out ink the way they desire it. Such agents can’t be trusted at all. They will do whatever they can to get results as needed. 
+
+This fundamental difference between actors and agents is the difference to be discerned when an event is being investigated. Events can either to be random and without a story that can allow them to happen or they can be part of intricately woven dense narratives that explain them. We don’t care either way. We just care for the stories that our agents on the field eventually spin and the reasons they give to them. The active agents are the only entities who have the will and the means to change the direction of stories. On an active field — there are all kinds of agents. Some on our side and some representing our opponents. What motivates them? What is the material nature of their will to change and morph itself? We don’t know this very well. We don’t know what makes the steely will, that agents have, to change. It might be manipulation, it might be drive, it might be a gumption for fortune telling. Some of these beliefs might be within our scope of things that we can do and some not. But either way belief is the factor here that can make a switch happen. 
+
+Coming back to our initial question now — how will the story unwind? We don’t know. To know this we have to get into some level of fortune telling ourselves and how that happens is out of scope of this text. We cannot just rely on manuals because manuals cannot possibly exist for what is essentially a pseudo-science and something that you might even call plain Jane mackerel. Just like fish survives on a very rigid set of conditions so does fortune telling. We cannot go anywhere close to acknowledging it a way of finding out the truth.
