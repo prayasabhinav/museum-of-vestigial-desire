@@ -1,9 +1,9 @@
 ---
-title: "Home"
+title: "Museum of Vestigial Desire (MoVD)"
 url: https://museumofvestigialdesire.net/
 ---
 
-# Home
+# Museum of Vestigial Desire (MoVD)
 
 ----
 
