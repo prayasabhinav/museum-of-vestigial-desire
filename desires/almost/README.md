@@ -1,6 +1,6 @@
 ---
 title: "Almost"
-url: https://museumofvestigialdesire.net/almost
+url: https://museumofvestigialdesire.net/desires/almost
 date: 2026-04-30
 ---
 

@@ -1,6 +1,6 @@
 ---
 title: "Ventriloquism"
-url: https://museumofvestigialdesire.net/almost/ventriloquism
+url: https://museumofvestigialdesire.net/desires/almost/ventriloquism
 date: 2026-04-30
 ---
 

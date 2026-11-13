@@ -1,6 +1,6 @@
 ---
 title: "Rogue Prototypes"
-url: https://museumofvestigialdesire.net/almost/rogue-prototypes
+url: https://museumofvestigialdesire.net/desires/almost/rogue-prototypes
 date: 2026-04-30
 ---
 
