@@ -25,7 +25,7 @@ This fear of heading towards an uncertain future coerces us to have a plan b and
 
 We are in line for disaster. And we only need to make peace with that. If we don't plan, how can any eventuality be perceived as positive by us? Everything should offend us equally. We cannot possibly like any of the possible outcomes.
 
-We need to develop a capacity to keep spinning into the blind, without a plan - without a clue. With commitment and adherence to the rhythm and passion. 
+We need to develop a capacity to keep spinning into the blind, without a plan — without a clue. With commitment and adherence to the rhythm and passion. 
 
 We have so far focussed on the act of cursing and spitting it out. Now, we must talk about what must be done when we are cursed. What if someone walks in and tosses a curse on us? How do we protect ourselves? 
 

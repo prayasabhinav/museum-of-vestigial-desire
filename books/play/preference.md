@@ -21,7 +21,7 @@ Why do we base our accusation of fabrication on?
 
 We have observed that claims to know the preferences of people are generally based on statistical analytics. We have observed that statistical analytics has a bias for trends and patterns and is not the same as putting your ear to the ground or the same as placing the said finger on the pulse. 
 
-Both these methods of understanding the public mind - one methodical and other cultural - are not the same. The methodical way prefers to capture a sentiment rather than deal with details whereas the cultural way acknowledges the gathering of messages and information that is not clear and distinct like statistics but rather is a noisy and sensory. The noisiness of this sensory data reflects an inclusion of many contrary perspectives. If we go back to our model at hand, then we can say that the cultural method acknowledges more contrary, deviant and marginal preferences of people than the statistical method. 
+Both these methods of understanding the public mind — one methodical and other cultural — are not the same. The methodical way prefers to capture a sentiment rather than deal with details whereas the cultural way acknowledges the gathering of messages and information that is not clear and distinct like statistics but rather is a noisy and sensory. The noisiness of this sensory data reflects an inclusion of many contrary perspectives. If we go back to our model at hand, then we can say that the cultural method acknowledges more contrary, deviant and marginal preferences of people than the statistical method. 
 
 The preference of people is mysterious. It is neither easily known or accessed. It is not a trivial piece of information which can be clubbed along with demographic data of different types.
 

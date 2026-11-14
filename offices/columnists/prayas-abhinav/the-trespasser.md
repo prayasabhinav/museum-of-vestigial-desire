@@ -17,6 +17,6 @@ In this environment, the trespasser is an absolute. Borders, no matter how uncon
 
 And if you are a trespasser, then recognise that fact and accept it. You will never belong anywhere. You will only be pleased when you are occupying somebody else's property. You will never have your own domain and you will always occupy somebody else's domain. 
 
-Trespassers are not tricksters. They do not have any objective. They are not striving for their survival. In all matters of social operation, they may behave in any way that seems strategic to them. Tricksters on the other hand are out to get their way. They don't want to feel that they are missing out. They need to be ahead of the pack - be the one who survives rather than the one who perishes. 
+Trespassers are not tricksters. They do not have any objective. They are not striving for their survival. In all matters of social operation, they may behave in any way that seems strategic to them. Tricksters on the other hand are out to get their way. They don't want to feel that they are missing out. They need to be ahead of the pack — be the one who survives rather than the one who perishes. 
 
 To understand trespassers take away the agency that is normally associated with them. The refugee is a trespasser without agency. The wilful trespasser has somehow run out of favour and today we are much more likely to want to maintain the status quo by accepting borders to be sacrosanct and by favouring those who buy into this fantasy.

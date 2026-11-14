@@ -17,7 +17,7 @@ Museums are theatres, sites of history as well as spaces for performance.
 
 At a time when the general mean experience of people is of such a low quality, the eco-system is worried about life as it gets populated by content and experiences and the intensities that emerge.
 
-Museums enact a different intensity. If the intensity does not differ substantially the enacted episode is a failure. Museums, at large, might fail; in the plural they might fail. But, in the singular - in this isolated instance the struggle is relentless. 
+Museums enact a different intensity. If the intensity does not differ substantially the enacted episode is a failure. Museums, at large, might fail; in the plural they might fail. But, in the singular — in this isolated instance the struggle is relentless. 
 
 This museum does not consider the possibility of failure because we engage only in one way transmission. We are interested in propagating but not in receiving feedback. The noise of disengagement, disinterest or disenchantment does not reach us. 
 

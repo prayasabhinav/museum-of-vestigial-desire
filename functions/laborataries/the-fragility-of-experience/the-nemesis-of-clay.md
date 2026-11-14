@@ -191,7 +191,7 @@ M stood tapping his feet.
 
 E woke up in the middle of the night with a shriek. "I dreamed of a huge figure of M standing on the top of our building. and peeing down on the street. Peeing down on the corpses of the soldiers was a magical act. The act purified the corpses and set the voices free again. The free voices flew off into the sky, like strokes of fire."
 
-On waking up, E wasn't feeling very good. She puked most of her dinner out. She felt light-headed and confused. She was feeling suffocated too. She opened the front door of her house to let some more air in. As soon as she did that, a couple of thousand cricket balls rolled into the room. These were balls of all the colours imaginable - red, yellow and blue. Each ball was spinning in its place at a slow pace. 
+On waking up, E wasn't feeling very good. She puked most of her dinner out. She felt light-headed and confused. She was feeling suffocated too. She opened the front door of her house to let some more air in. As soon as she did that, a couple of thousand cricket balls rolled into the room. These were balls of all the colours imaginable — red, yellow and blue. Each ball was spinning in its place at a slow pace. 
 
 ## Seven
 

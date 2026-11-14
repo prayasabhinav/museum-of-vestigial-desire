@@ -19,7 +19,7 @@ If you do nothing and have no social,or personal crutches to feel you are comfor
 
 What we know at that point is the fact that the story doesn't need actors, the actors need the story. 
 
-For each actor, the flow of character and acting is continuous but it is abrupt. It is like a riot. Actors in a riot do perpetuate mayhem but why and to what extent is the collective damage to the landscape - they are unaware of that. The plot of the riot only unravels later. For actors who actually get to see the whole product of what they act in, the connection between their immersive experience of acting and the gloss and continuity of the final output never add up together. All actors carry an unknown guilt of somehow being a part of a scam. But what is the scam? That, they never know.
+For each actor, the flow of character and acting is continuous but it is abrupt. It is like a riot. Actors in a riot do perpetuate mayhem but why and to what extent is the collective damage to the landscape — they are unaware of that. The plot of the riot only unravels later. For actors who actually get to see the whole product of what they act in, the connection between their immersive experience of acting and the gloss and continuity of the final output never add up together. All actors carry an unknown guilt of somehow being a part of a scam. But what is the scam? That, they never know.
 
 So, when actors discover that there is actually a story that governs the general flow of acting that they perform and that the story actually is the meta-narrative that contextualises the placement of each instance of the acting, they perceive the need for the story. 
 
@@ -41,7 +41,7 @@ Any potential action which claims to have a powerful impact on the world should 
 
 The clarity of being sensitive to the cosmic balance is the clarity of minimums. There is nothing to think about, there is nothing to do. The task at hand is learning to stand still. A bicycle that needs to move in order to be balanced on two wheels. It is not balanced when it is still. It needs the inconsequential distraction of movement to allow it to be stable. This is the space for learning. How is balance to be attained in stillness? Where is the room for trials? How are strategies to be tried out?
 
-The room for figuring out still-balance strategies is located in a dreamworld. Because the practice room is in a dream world, the floor can be soft. If you fall often, your bones still will not hurt. Trying new possibilities, having room for failure and being thick-skinned - all go hand in hand. There is no one future that we are trying to transition through to. Whatever we get is good enough.
+The room for figuring out still-balance strategies is located in a dreamworld. Because the practice room is in a dream world, the floor can be soft. If you fall often, your bones still will not hurt. Trying new possibilities, having room for failure and being thick-skinned — all go hand in hand. There is no one future that we are trying to transition through to. Whatever we get is good enough.
 
 How alert should the awakened state be? How much information gets registered in the state? How does being awake help in filtering experience in a finer way? Is being awake just a way to decorate our persona? Is time fast enough to witness the continuity of an awakened experience?
 

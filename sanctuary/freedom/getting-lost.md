@@ -9,7 +9,7 @@ tags: ["soup"]
 
 Getting lost, or not knowing where you are is a situation that at first instance produces anxiety. It is an indefinite state that assumes that the motivation of navigation and movement is rational or functional. This assumption arises from the narrow explorative space in our local area that most of map and from also the way in which drifting has become a cultural template of sorts of swimming against the current.
 
-If they are moving fast, we can go slow. If they know where they are, we can forget - and get lost in the process. This reversal has become too easy to state and so has become impossible to achieve. Because language is a map. It lends concepts a valid location in our imagination and makes them accessible. So accessible in fact that they are not surprising anymore. 
+If they are moving fast, we can go slow. If they know where they are, we can forget — and get lost in the process. This reversal has become too easy to state and so has become impossible to achieve. Because language is a map. It lends concepts a valid location in our imagination and makes them accessible. So accessible in fact that they are not surprising anymore. 
 
 The idea of getting lost in an urban landscape is one such idea. It is always possible but also technically impossible. The urban landscape is too marked, populated and mapped to be truly lost in anymore. Of course you can be lost in relation to reaching some final destination but getting lost in an absolute way is difficult. It is a lost cause. At best the idea can be revisited, appropriated again and again with hopes of it rubbing off some sediment of the intended experience on you. 
 

@@ -17,4 +17,4 @@ We are currently seeding a platform for the sharing and dissemination of alterna
 
 Surfatial was an individual effort from 2014-15 and a collective effort from 2015-17. Presently it is exploring different structural formats. 
 
-Surfatial is neither dead nor alive. It is always at home, devising its next play. Surfatial comprises of three roles - Surface, Mirror and Perspective
+Surfatial is neither dead nor alive. It is always at home, devising its next play. Surfatial comprises of three roles — Surface, Mirror and Perspective

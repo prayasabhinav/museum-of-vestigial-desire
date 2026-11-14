@@ -27,7 +27,7 @@ Surfaces as packaging have become the battleground for capital. This battlegroun
 
 When hyper concentrations of content aggregate together on surfaces, they sometimes call themselves art. Art is only valid as a found object. As an object with notional value and a place in the pragmatics of exchange it is an impostor. Disbelieve in the systems of producing art. But, do not disbelieve in its emergence; inspite of everything, it might still be possible.
 
-The surface of our minds - our psyche - has been touched too often by the intentioned tentacles of the world. Now our minds are perturbed and hungry, they will only satisfy on self-destruction.
+The surface of our minds — our psyche — has been touched too often by the intentioned tentacles of the world. Now our minds are perturbed and hungry, they will only satisfy on self-destruction.
 
 The surface of our emotions has been left salivating by the desperation embedded in the stories floating around in the market-place. Lack attracts lack. The craftsmen of the stories lack sufficient content, they were forced to conjure, and, imagine that now you are bound in that hungry cycle.
 

@@ -29,7 +29,7 @@ This will enable us to a world where we have both strategic consumption and indi
 
 The growth of the world is constrained by the intensity of consumption patterns that develop. 
 
-To let the world grow with infinitely scoped leaps and bounds, its meta infrastructure needs to be delinked from individuals. Otherwise the population of the individuals who clutter the globe will become like anchors on the soaring spirit of the world - a dead weight. 
+To let the world grow with infinitely scoped leaps and bounds, its meta infrastructure needs to be delinked from individuals. Otherwise the population of the individuals who clutter the globe will become like anchors on the soaring spirit of the world — a dead weight. 
 
 This de-linking of the production process of the meta-process of scanning and filtering and the individualistic process of producing variation is a frugal process for the production of a world-system with natural qualities of having individual variation at the personal scale. 
 

@@ -25,7 +25,7 @@ A void is a black hole of experience. It is a package of absences, a space where
 
 What role does a void have in a game world? It is a space which you can step into and step out of at the same time. How does it affect you?
 
-A void is really only a set of sensory impulses that trigger a space for void in the head. Discussions about interiority happen because of the urge to distinguish inside from outside - distinguish the fact that the void is in the head or outside. This differentiation unfortunately helps the validation of experience. Stuff happening outside is no less real than the stuff happening inside. There is no way of looking at the world that can render the fact as an obvious piece of information. 
+A void is really only a set of sensory impulses that trigger a space for void in the head. Discussions about interiority happen because of the urge to distinguish inside from outside — distinguish the fact that the void is in the head or outside. This differentiation unfortunately helps the validation of experience. Stuff happening outside is no less real than the stuff happening inside. There is no way of looking at the world that can render the fact as an obvious piece of information. 
 
 As a quick backtrack: What is real? That which is seen or sensed? Or that which is real in thought and might or might not be real in sight or sensation. The reason that this does not have any fixed answer that it is a deliberately-worded misleading question. It makes you think that there is something about how things exist in the world but there is something just about how you look at the world. In perception, either something becomes real or a mirage. 
 

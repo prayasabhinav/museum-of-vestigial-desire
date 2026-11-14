@@ -17,4 +17,4 @@ Posts are fragments of text that might not have a specific strategy. It is not e
 
 Posts are packages that follow rules. Texts are scenarios that set out the rules. Rules need illustrations and illustrations need rules. 
 
-Posts can also thought to be arrays of rules - laid out in a succession, across time. Posts demand more from readers, for meaning (if any) is rendered in their memory. Memory of the reader should have the narrative span in order to accommodate a lengthy expanse of meaning. Posts will be recurrent. Through their recurrence, they will spin a yarn of meaning. Posts and texts are bound within a loop in this way. Texts lead to posts and posts get compiled as texts.
+Posts can also thought to be arrays of rules — laid out in a succession, across time. Posts demand more from readers, for meaning (if any) is rendered in their memory. Memory of the reader should have the narrative span in order to accommodate a lengthy expanse of meaning. Posts will be recurrent. Through their recurrence, they will spin a yarn of meaning. Posts and texts are bound within a loop in this way. Texts lead to posts and posts get compiled as texts.

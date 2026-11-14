@@ -13,7 +13,7 @@ I learn the wrong lesson at the wrong time.
 
 The truthfulness of the accountant was absorbed. The steeliness of the resolve to run a stable ship was observed. But to learn to be a gambler of repute is to learn to pay for it. Accepted, you have your obsessions, the same as me. Can you pay for them? Can I pay for mine? But that is not the point.
 
-Egos are fragile. I can feel small on knowing that someone I know on another continent is doing well. I forget where I am. I have an out of body experience. I see a carefully constructed exterior and I fidget listlessly in my interior. Becoming an alien, zooming into space, is about refusing to analyse. Refusing to understand the codes. Being the fuck-up, the clown. Having nothing to lose is a statement of cool. A statement of ostentatious spiritual display. This is only possible if my accounting system differs fundamentally. But all accounting systems are the same - they try to be precise, accurate. Mapping the flow of the input and output. 
+Egos are fragile. I can feel small on knowing that someone I know on another continent is doing well. I forget where I am. I have an out of body experience. I see a carefully constructed exterior and I fidget listlessly in my interior. Becoming an alien, zooming into space, is about refusing to analyse. Refusing to understand the codes. Being the fuck-up, the clown. Having nothing to lose is a statement of cool. A statement of ostentatious spiritual display. This is only possible if my accounting system differs fundamentally. But all accounting systems are the same — they try to be precise, accurate. Mapping the flow of the input and output. 
 
 I am still searching for an accounting system that doesn't exist. Which refuses its own existence. 
 

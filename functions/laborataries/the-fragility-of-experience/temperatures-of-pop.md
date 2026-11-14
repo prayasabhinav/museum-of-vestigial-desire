@@ -63,7 +63,7 @@ So, not only did both of them differ, holding each in their position was importa
 
 Life is a see-saw in an inter-dependent way but it also operates on a one up-one-down principle. This one-up-one-down nature, unnecessarily sets forces in opposition to each other. Actually all the antagonism between Lensman and Lukewarm was fictional. None existed. They might even have been good friends actually. 
 
-But this did not happen. And they kept trying to prove themselves to the other. When they tried to prove to the other, their focus from the narrative - of trying to balance the world faded. This loss added fuel to the fire. Or rather fuel to the disarray.
+But this did not happen. And they kept trying to prove themselves to the other. When they tried to prove to the other, their focus from the narrative — of trying to balance the world faded. This loss added fuel to the fire. Or rather fuel to the disarray.
 
 When Lensman tried to lend himself to Lukewarm to sharpen himself, Lukewarm took affront. Lukewarm did not appreciate Lensman's suggestion and thought of it as an insult. But Lensman was only offering a function and not a gesture, there was no sentiment attached to it.
 
@@ -452,13 +452,13 @@ Sweetness is alien to the world. The world originated in hostile circumstances. 
 
 But we will leave the technicalities aside. 
 
-Sweetness was cultivated as an antidote. Now, who did this cultivation is not relevant here. The fact is that the harshness of the world coming into being had to be dulled to be made tolerable. Tolerance is an emotion. And that's right - emotions have existed before humans came into being. 
+Sweetness was cultivated as an antidote. Now, who did this cultivation is not relevant here. The fact is that the harshness of the world coming into being had to be dulled to be made tolerable. Tolerance is an emotion. And that's right — emotions have existed before humans came into being. 
 
 When the world was empty of bodies, emotions flew around and settled like dust on any surface that was available. 
 
 This availability of surface was a matter of chance. Emotions few around because in those days a ferocious wind blew and this wind was blowing because there was nothing to contain it. There was no landscape, there were no structures, there was nothing to contain the wind. 
 
-The empty world was in fact a forest of ghosts. Ghosts do not have a tongue. Because they do not have a tongue, a mind or a body - now that the world is filled, we do not understand them anymore. For us God is the only boundless being. And there are no sub-sets. There is no idea that even approximates the idea of the holy ghost. Because of this singular idea of God, a lot of things which don't belong to this idea are projected on it anyway. 
+The empty world was in fact a forest of ghosts. Ghosts do not have a tongue. Because they do not have a tongue, a mind or a body — now that the world is filled, we do not understand them anymore. For us God is the only boundless being. And there are no sub-sets. There is no idea that even approximates the idea of the holy ghost. Because of this singular idea of God, a lot of things which don't belong to this idea are projected on it anyway. 
 
 When Pinha and Kinha woke up, they knew that this was the day they had been waiting for. They were both identical twins. Their whole life, they had struggled with the idea of God. They wondered how the ghosts who spoke to them in the darkness could be their imagination. They knew the ghosts were real. But the whole domain of things which existed but could not be seen belonged to the idea of God. So if ghosts existed at all, they had to be a part of the idea of God. And ghosts definitely existed. Their conversations in the dark were not imagined. And they were not crazy. That much they knew.
 
@@ -474,9 +474,9 @@ The machine was said to be built by aliens so no one knew how it operated. It wa
 
 That was the story. And there all probing ended. The probing did not yield anything further and so probing remained an obscure task performed by obscure people. People on the large believed. 
 
-Actually there were people who knew how this machine worked. They had just not been transparent about the fact. These people did not want to come across as puppet-masters. They didn't want to be seen as people - mortal, fallible and fragile. They wanted the focus and the attention to remain only on the machine. The machine as this mysterious construct that ruled the world only inspired awe and fear and made it more powerful than it was. The more powerful the machine was thought to be the less resistance people offered. 
+Actually there were people who knew how this machine worked. They had just not been transparent about the fact. These people did not want to come across as puppet-masters. They didn't want to be seen as people — mortal, fallible and fragile. They wanted the focus and the attention to remain only on the machine. The machine as this mysterious construct that ruled the world only inspired awe and fear and made it more powerful than it was. The more powerful the machine was thought to be the less resistance people offered. 
 
-Soon the world was bereft of individuality and bereft of dissent. The world was only a playground of rhythms - subtle and coarse. These rhythms could be easily tapped by the machine. Because rhythms are maths and machines are maths too.
+Soon the world was bereft of individuality and bereft of dissent. The world was only a playground of rhythms — subtle and coarse. These rhythms could be easily tapped by the machine. Because rhythms are maths and machines are maths too.
 
 The machine wanted a union of the church, the asylum and the school of black magic because it wanted the uncertainty to be manageable. All these people figured that the equation was open-ended and that it only got balanced by some flux which was not even physical. That which was not physical was not there for the machine. The machine could put all these people into one category. It could assign noise as the symbolical reference for this category. 
 
@@ -500,13 +500,13 @@ The conflict didn't become an all out war. There was no singular battlefield. Th
 
 Pinha was calmer now. He could feel that Kinha was feeling more unencumbered now. He could feel that what was earlier the shadow of anger was now only only a shadow. Anger had disappeared. Because the attempt to keep culture sorted and clean had finally failed. Now there was nothing holding the potential of experience back. The potential was open. Prediction was not possible anymore. 
 
-In the middle of a battle that raged between the citizens and the machine - everyone lost interest in fighting. This happened spontaneously and after this moment everyone suddenly laid down their arms. 
+In the middle of a battle that raged between the citizens and the machine — everyone lost interest in fighting. This happened spontaneously and after this moment everyone suddenly laid down their arms. 
 
-People were fighting with their hands and their minds. And now that they had stopped fighting - their hands were tired and their minds were exhausted. Their blood pressure was high when they were fighting and now it was normal again. 
+People were fighting with their hands and their minds. And now that they had stopped fighting — their hands were tired and their minds were exhausted. Their blood pressure was high when they were fighting and now it was normal again. 
 
 What happened? How did psychosis change the common experience?
 
-A snake had crept into people's minds. Nobody could see this snake. But this snake crept from mind to mind - twisting through matter if it was not present. And matter is never present. Matter is just a shadow of that which is present. And this shadow and the dream playing in our heads shows us a dream in which we imagine three dimensional forms. Dreams can be many. 
+A snake had crept into people's minds. Nobody could see this snake. But this snake crept from mind to mind — twisting through matter if it was not present. And matter is never present. Matter is just a shadow of that which is present. And this shadow and the dream playing in our heads shows us a dream in which we imagine three dimensional forms. Dreams can be many. 
 
 One of them is of this snake crawling from mind to mind. This snake is harmless but when it crawls through a particular mind, it leaves the cerebrum in a condition that makes it feel like warm sludge.  Imagine walking around with warm sludge in your head. This is what they felt like, when the snake passed through their head. The common belief has been that the mind lives in the brain. And the brain lives in the head. But actually the mind lives in the body. Our idea of ourself is modelled through the body we think we have. If this body gets hurt or damaged, it hurts the balance of the mind. It is difficult to get over hurt because it doesn't just involve physical experiences of pain. It also involves the memory, the imagination and the afterthought of pain. 
 
@@ -528,7 +528,7 @@ Fear is a key as well as a lock. You succumb to fear and you get a unique experi
 
 The patterns of the formats of text that you are habituated to reading are not even punctuated with grief. You have never been broken. You have never waited breathlessly for someone or something to fix you. You will never know what lies beyond the crack.
 
-Don't worry there is no trauma there, there is no hell with a burning fire, there is no unpleasantness. What lies beyond the crack is just a prolonged pause. Nothing happens, not even the tick of time. And in that bland featureless blankness everything loses meaning. The nice things, the syrupy emotions all become too much to deal with. There is no patience to let something take root. In the desert of your mind, before anything happens, it will dry away. That landscape will not let you dream and escape. You will be left with no choice but to be afraid. You will be afraid of being stuck in that frame of time forever - irrespective of the fact that you have never come across anything permanent, you will be afraid of that. The fear will drive you to read whatever you read very carefully. Fearing land-mines, fearing traps, fearing the worst. 
+Don't worry there is no trauma there, there is no hell with a burning fire, there is no unpleasantness. What lies beyond the crack is just a prolonged pause. Nothing happens, not even the tick of time. And in that bland featureless blankness everything loses meaning. The nice things, the syrupy emotions all become too much to deal with. There is no patience to let something take root. In the desert of your mind, before anything happens, it will dry away. That landscape will not let you dream and escape. You will be left with no choice but to be afraid. You will be afraid of being stuck in that frame of time forever — irrespective of the fact that you have never come across anything permanent, you will be afraid of that. The fear will drive you to read whatever you read very carefully. Fearing land-mines, fearing traps, fearing the worst. 
 
 And that is where you are. I couldn't tell you that I am not describing a hypothetical situation but rather describing your current situation. If I had told you earlier, you would not have agreed to see the model I built for you. You would have also denied me the privilege of describing your situation. You would not have let me build up the story because this story reaches a conclusion that you cannot accept. 
 

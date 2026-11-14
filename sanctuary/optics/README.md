@@ -11,4 +11,4 @@ What do we see? And do we see it? It is true that we only experience the remnant
 
 And that is where the concept of a LENS helps us hold on to as well as walk away from the field as it exists. Our minds are lenses, if nothing else. Everything we manage to see is through the faculties of our minds. If our minds are programmed in specific ways, our experience will have that specific flavour. And there is no way to work on our minds directly. It is like shooting at a figure, when you can see them in a mirror. All the figures we can see are only reflections in the mirror. 
 
-We work on our mind only by applying it in specific directions. Practices are directions. Writing, Thinking, Walking -  each is a practise because we can script the actions, but not the experience. Ways of performing practices can be gestured towards but the content has to emerge.
+We work on our mind only by applying it in specific directions. Practices are directions. Writing, Thinking, Walking — each is a practise because we can script the actions, but not the experience. Ways of performing practices can be gestured towards but the content has to emerge.

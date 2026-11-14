@@ -13,7 +13,7 @@ But still most of us hold on to their notions of value dearer than their notions
 
 I would like to design games (not digital, real-world civic games, games as a public activity) to be played by children, senior citizens, women, men, artists, others, scholars, the nonchalant. A set of rules to analyse the playtime of a given game will be made and analysis of all the sessions played will be done. 
 
-The games will be designed as a part of the classroom and workshop time. The games will be analysed publicly. Others can join if they find it interesting - but they can be sure that the analysis process is deeply transparent. In the mode of following symbols and their representations, the analysis will be able to tell the notions of value that groups possess. The groups will need t0 comprise of homogenous groups of people for this to work.
+The games will be designed as a part of the classroom and workshop time. The games will be analysed publicly. Others can join if they find it interesting — but they can be sure that the analysis process is deeply transparent. In the mode of following symbols and their representations, the analysis will be able to tell the notions of value that groups possess. The groups will need t0 comprise of homogenous groups of people for this to work.
 
 This game design and analysis will be prepared in collaboration with graphic designers there for exhibition and possible publication. 
 

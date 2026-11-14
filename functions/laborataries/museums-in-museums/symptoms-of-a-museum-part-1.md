@@ -37,7 +37,7 @@ As a refugee-camp for mal-adjusted punks, museums are really running a shuffling
 
 Museums are at the end of the food-chain of whichever field they represent. There is no sales, there is no need for more money, there is more of it where it comes from. So the museum if a middle finger to all the middle-men, all the facilitators, enablers. They behave like kingmakers and whether there is magic or not in their magic-wand, they pull it out all the same. Fucking with everyone and feigning irreverence is one of the privileges reserved for the comedian-in-the-house. 
 
-The comedian-in-the-house is whoever has the guts to stand at this moment, whoever has the guts to put their head outside the window and holler, whoever can make you laugh. Slap them, leave the room. Do whatever. The comic is not going to stop. The comedy is going to be relentless, non-stop. And the figures in the front-row are going to get fingered. Freedom of speech was invented for the comedy stage only - fart in any direction, the stink gets home. Sometimes you laugh only because you came to a comedy performance. Hysteria builds up, layer upon layer.
+The comedian-in-the-house is whoever has the guts to stand at this moment, whoever has the guts to put their head outside the window and holler, whoever can make you laugh. Slap them, leave the room. Do whatever. The comic is not going to stop. The comedy is going to be relentless, non-stop. And the figures in the front-row are going to get fingered. Freedom of speech was invented for the comedy stage only — fart in any direction, the stink gets home. Sometimes you laugh only because you came to a comedy performance. Hysteria builds up, layer upon layer.
 
 ### Museums are games, rule-based systems,
 

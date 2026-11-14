@@ -9,7 +9,7 @@ tags: ["architecture"]
 
 An exhibition is typically an occasion and an event which plays the role of a showcase. Exhibitions are sometimes also called previews because they are afraid to become events. They want to remain tentative pre-events and inflate the idea of the potential event to larger than life proportions. 
 
-But to begin with, without previews and pre-events, exhibitions try to become events. An event is an occasion to centre - both in terms of the fragmentation of time and of attention. Visitors to the exhibition can experience this event if and when the points of attention and the programme of the exhibition come together simultaneously and in a desired manner. 
+But to begin with, without previews and pre-events, exhibitions try to become events. An event is an occasion to centre — both in terms of the fragmentation of time and of attention. Visitors to the exhibition can experience this event if and when the points of attention and the programme of the exhibition come together simultaneously and in a desired manner. 
 
 How does one ensure this? How does one ensure that the production of the event and the programming of the event go hand in hand? Intensity of experience can vary, but art is loved for precisely the reason that the experience of art is consistent. It is equally intense At all points of time. Art has an exaggerated price because it is always supposed to work. It does not work for everyone, but it works for some people some times. 
 

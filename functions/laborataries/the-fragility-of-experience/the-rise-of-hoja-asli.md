@@ -13,7 +13,7 @@ The sky was thick with clouds. Colour was distorted in the grey light, the blue 
 
 The shift of colour disfigured vision in unforeseen ways. Today we might think that colour and form are perceived as separate layers of the world but this is only because we have not experienced the fragmentation of that time, and we witness what seems to be a unity in form and colour.
 
-In that world, fog was seen as a state of matter that could absorb other entities into itself. On the day that this story starts, there was fog all over. It covered the empty spaces and hovered above the bridges and the empty houses. It hung - still and motionless alongside the canopies of the dry trees.
+In that world, fog was seen as a state of matter that could absorb other entities into itself. On the day that this story starts, there was fog all over. It covered the empty spaces and hovered above the bridges and the empty houses. It hung — still and motionless alongside the canopies of the dry trees.
 
 The trees had dried in the season of carnage. Contrary to what the historians narrate, the season of carnage was not just stifling and bloody, but it was also intensely hot. Heat was generated in the moments of the unfolding of the carnage. The heat was such that the trees dried up. This heat was generated from the friction produced by the encounter of the violence and the silence. The frictional heat was immense. The event of the drying of the trees did not contain it, the surplus heat just leaked into the air, as it knew not what else to do.
 
@@ -116,7 +116,7 @@ This life form and the music that it emanated along with the fluid generated fro
 
 The undefined span of time for which the life-form stood there was a whole era for the microbes that were born, lived and thrived in the water stream. These microbes performed very limited functions. The functions they performed were just enough for them to be considered life-forms. One of these functions was to vibrate at a constant rate in a rhythm. This vibration produced music. This music clashed with the music played by the creature. 
 
-The microbes and the creature started contesting for supremacy - will the microbe's music be heard or the creature's. The microbes tried very hard to disrupt the creature's state of production. They flew here and there, tried to break the shape of the water's fall. But for the microbes, the column of water was the world and they couldn't step out of it. Their competitive relationship with the creature was like an out-of-the-world conflict. It required a resolute belief on the part of the microbes to believe in the creature at all.
+The microbes and the creature started contesting for supremacy — will the microbe's music be heard or the creature's. The microbes tried very hard to disrupt the creature's state of production. They flew here and there, tried to break the shape of the water's fall. But for the microbes, the column of water was the world and they couldn't step out of it. Their competitive relationship with the creature was like an out-of-the-world conflict. It required a resolute belief on the part of the microbes to believe in the creature at all.
 
 This belief had taken on dimensions of a faith-based system but because the creature could be sensed clearly enough the belief extended itself to have the microbes believe that they were living in mythological times. 
 

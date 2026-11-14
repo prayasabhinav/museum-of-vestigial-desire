@@ -7,7 +7,7 @@ tags: ["nebula"]
 
 # Blur and shuffle
 
-Everything you read is hollow and and is an attempt to fool you. If the text you read is fragmented and reassembled, it will still make as much sense as it does now - which is nothing at all.
+Everything you read is hollow and and is an attempt to fool you. If the text you read is fragmented and reassembled, it will still make as much sense as it does now — which is nothing at all.
 
 Because we understand the situation, the meaning that we want to convey is configured for different configurations already. You can read the same text in multiple arrangements and it still makes sense. When we blur and shuffle the text that you are reading, you could either get confused or you get enlivened. You could finally receive the transmission that you have been waiting for all your life. But, before you start celebrating, we request you to wait and watch.
 

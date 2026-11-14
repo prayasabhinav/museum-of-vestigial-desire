@@ -9,7 +9,7 @@ tags: ["salvage"]
 
 We cannot see who we are. The mirror shows us something when we stare into it. We do not know if what we see is what we are. This is a simple fact. Because our eyes are fixed inside our heads and we know what enclosures mean. We want our eyes to roam freely, but it is not possible. We live in the frame the holds us. 
 
-But mirrors allow light to bend. The bending occurs via reflection but the degree of incidence is not the same as the degree of reflection - these two are inverted in relation to each other. The distortions that creep in into the inverted image are not just of orientation but also of resolution and depth. The resolution refers to the materiality of the image. How we are seen comprises of tonalities that exist as layers of sheen floating on top of the cells of our retina. How we see ourselves, exists in the form of atoms and other particulate matter of the mirror. There is no overlap. 
+But mirrors allow light to bend. The bending occurs via reflection but the degree of incidence is not the same as the degree of reflection — these two are inverted in relation to each other. The distortions that creep in into the inverted image are not just of orientation but also of resolution and depth. The resolution refers to the materiality of the image. How we are seen comprises of tonalities that exist as layers of sheen floating on top of the cells of our retina. How we see ourselves, exists in the form of atoms and other particulate matter of the mirror. There is no overlap. 
 
 Mirrors cannot see. 
 
