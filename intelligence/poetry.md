@@ -6,7 +6,7 @@ date: 2026-11-13
 
 # Poetry
 
-Poetry is a special kind of language. They are closer in lineage to mantras and chants than prose. This is because of some specific things but first some clarifications.
+Poetry is a special kind of language. It is closer in lineage to mantras and chants than prose. This is because of some specific things but first some clarifications.
 
 What we understand to be verse is not always poetry. Verse is a format of diction. It is a way to get across. A poem on the other hand is way of getting across that establishes its own way. It establishes its own rhythm, its own context and has room for interpretation. People only use prose for communication because prose uses language in a reduced and functional way. What is said is followed! And that is a big loss... For a moment, assume that the potential of communication (for us to realise a kind of meaning that helps us rise above the profound numbness that we are seeped in) was cross-connection. Mis-heard production. People receiving something other than what was literally transmitted... Receiving as the  transmitting persons makes the act of receiving into a dumb, machined act. One that denies that there is any creative potential in the act of receiving at all. A potential that can be exercised through interpretation. Through our attempt to separate the intents of different endeavours to communicate and trusting our exercising the ability to interpret when "we perceive" it to be advantageous to do so, we have effectively made social interaction dull and deprived it of any potential of gradually sharpening our capacity to solve the problems that surround us. 
 
