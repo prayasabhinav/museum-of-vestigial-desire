@@ -11,11 +11,11 @@ I choose to appropriate the word. The word 'museum' now just means what I read i
 
 And here goes.
 
-### A museum is a catalog of the lost and found registry,
+### A museum is a catalogue of the lost and found registry,
 
 When I say "the" lost and found registry, I mean a specific one Of course there are lots of those out there, if you are Japan, one at every station.
 
-I mean the specific registry that journalists run. Journalists who have some interest in history. Journalists who have learnt a thing or two and fancy themselves with other identifiers. Like: historian, curator, critic, why even a director of a museum collection or something. A registry that a journalist runs is always operating desperate reconnoissance missions. Missions that hope to catch hold of things before they disappear. Catch hold of things before they become ghosts. The journalist (sorry a upper-case J will just be too much) pickles these border-line ghosts and proclaims a museum. But museums are not pickle shops. I mean they are lots of things but they are not pickle-shops. So pickling border-line ghosts is one, and then getting real'n'greasy with them is another. Imagine an all-night orgy with ghosts. Where will your mind be? So these don't just bind a history-text with architectural floss and money. They really play the coroner, the mourning chamber, the autopsy chief, the jazz performer. The cheap massage (and other tricks) offering-guy.
+I mean the specific registry that journalists run. Journalists who have some interest in history. Journalists who have learnt a thing or two and fancy themselves with other identifiers. Like: historian, curator, critic, why even a director of a museum collection or something. A registry that a journalist runs is always operating desperate reconnaissance missions. Missions that hope to catch hold of things before they disappear. Catch hold of things before they become ghosts. The journalist (sorry a upper-case J will just be too much) pickles these border-line ghosts and proclaims a museum. But museums are not pickle shops. I mean they are lots of things but they are not pickle-shops. So pickling border-line ghosts is one, and then getting real'n'greasy with them is another. Imagine an all-night orgy with ghosts. Where will your mind be? So these don't just bind a history-text with architectural floss and money. They really play the coroner, the mourning chamber, the autopsy chief, the jazz performer. The cheap massage (and other tricks) offering-guy.
 
 Of course there are museums pretending to be talking about the present. Offering the juiciest carrot of them all, for letting also-rans some show to be running-now. So you know escape-the-rat-race exit route. You land up in bed with a journalist who is going to musify (new word!) you. Seeding a monument to the unmarked, undeclared. Like fox searchlight, taking independent movies and putting them in theatres all over the galaxy. But *sometimes* I find these to be more like half-way houses. So *sometimes* these kind of museums don't make the cut. When in doubt, ask yourself, does this museum rock my foundations? If yes, check. If no, no-go.
 
@@ -41,7 +41,7 @@ The comedian-in-the-house is whoever has the guts to stand at this moment, whoev
 
 ### Museums are games, rule-based systems,
 
-You can play a game with a machine, because a machine will always faithfully follow rules. There is room for faltering, for exceptions. Museums, which we are talking about are like machines. There is no room for calling the people-you-met-at-the-party in. No room for being whimsical, writing your agenda for the year on a roll of toilet paper. Museums are machines for playing games. Games, according to popular diagnosis: rules, goals, rewards, voluntary participation. So in a game-world you can trigger things to happen, cause events by your actions. There is no mystery. There is complexity, yes. But all of it has been parameterized. So in my world, a museum almost have no head of their own. They are just pockets of probability, zones of repercussion. 
+You can play a game with a machine, because a machine will always faithfully follow rules. There is room for faltering, for exceptions. Museums, which we are talking about are like machines. There is no room for calling the people-you-met-at-the-party in. No room for being whimsical, writing your agenda for the year on a roll of toilet paper. Museums are machines for playing games. Games, according to popular diagnosis: rules, goals, rewards, voluntary participation. So in a game-world you can trigger things to happen, cause events by your actions. There is no mystery. There is complexity, yes. But all of it has been parameterised. So in my world, a museum almost have no head of their own. They are just pockets of probability, zones of repercussion. 
 
 And so, this museum is also a casino. A den for high-stake gambling. Sometimes life can be at stake, but other times more important things. Like the right to be seen as a person, a person with something to say. Within its own world only the rules decide what happens. And the rules here are not codes, not algorithms. But just a mass of unresolved, unparsed text.
 
@@ -59,7 +59,7 @@ Obsession lives on the same street as sentimentality. Just way head. Way down th
 
 Without an obsessive, neurotic urge I see programmes and agendas emerge from anywhere. Research, theory, aspiration, funders, google searches... anything. It is a strategy to avoid redundancy, a strategy to sideline possible glories and afflictions. Why want glory when you have a blazing obsession to nurture? The obsessive never worry. About the story winding up and dealing with a silence. The soundtrack is unending, the story will never wind-up. There will be enough obsession to go around, when it comes to that.
 
-Obsession is the only way to to subvert and destabilize cultural tendencies to loop and crawl. Crawl behind trends and pools of common interest, avoidance-behaviors and innocence. Loop with each available opportunity, "if there is no future on the horizon, there is always the past." 
+Obsession is the only way to to subvert and destabilise cultural tendencies to loop and crawl. Crawl behind trends and pools of common interest, avoidance-behaviours and innocence. Loop with each available opportunity, "if there is no future on the horizon, there is always the past." 
 
 ### And also unresponsive, unsolicited, self-propagating,
 
@@ -69,7 +69,7 @@ We propagate ourselves, there is no press release. There is no hope that someone
 
 ### Museums are schizoid,
 
-I have never known the right manner of eating at the dinner table. Even if I know, it doesn't play out right. I will be fumbling with the fork or the spoon or the chopsticks. And I just smile, charmingly and sweetly. I got no time for explanations. I can't explain very well that early in this train ride, I dumped a part of my brain. It was the part that helped me understand and empathise with people around me. Only the schizoid will survive the storm that's brewing. Only the schizoid will lead humanity into the future. A passionate practice of obsession, being self-centered and not giving a flying fuck for anything else. 
+I have never known the right manner of eating at the dinner table. Even if I know, it doesn't play out right. I will be fumbling with the fork or the spoon or the chopsticks. And I just smile, charmingly and sweetly. I got no time for explanations. I can't explain very well that early in this train ride, I dumped a part of my brain. It was the part that helped me understand and empathise with people around me. Only the schizoid will survive the storm that's brewing. Only the schizoid will lead humanity into the future. A passionate practice of obsession, being self-centred and not giving a flying fuck for anything else. 
 
 Of course there are still family and friends. They just become a part of me, there is a magnanimous sense of self. No separation, no chunking of people in bodies. 
 

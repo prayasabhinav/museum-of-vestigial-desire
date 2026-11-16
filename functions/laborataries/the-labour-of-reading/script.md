@@ -7,7 +7,7 @@ tags: ["stag"]
 
 # Script
 
-If we manage to say, maybe you will manage to hear. But listening depends on capacity as much as clarity of speech and cannot be standardized. So we over-invest in our transmission. We bet on intensity. 
+If we manage to say, maybe you will manage to hear. But listening depends on capacity as much as clarity of speech and cannot be standardised. So we over-invest in our transmission. We bet on intensity. 
 
 Intensity demands more attention. Investing attention exhausts the actor. Nothing can be communicated to exhausted actors. 
 
@@ -19,7 +19,7 @@ This makes acting impossible as an everyday mode of existence.
 
 In highly structured societies, this causes a mass delusion to set in. Acting is automatic and compulsive. The delusion views the alien or the foreigner as the badly trained actor. Training, discipline and order are the most desirable support mechanisms here because these support the two-faced delusion. One face of the mirror shows the compulsive actor her own face and the other shows her the lack of conviction on the part of those who are refusing to act.  
 
-In this deluded state, the anxiety of the actor is projected onto the perceived non-actors. This anxiety comes radicalized with the deep-seated fear of failing to remember the world without the act. If the lack of conviction on the part of the non-actors forces the actor to call the act off, then what will happen? What will happen if the actors are forced to face the world without a script? Isn't that what death is about?
+In this deluded state, the anxiety of the actor is projected onto the perceived non-actors. This anxiety comes radicalised with the deep-seated fear of failing to remember the world without the act. If the lack of conviction on the part of the non-actors forces the actor to call the act off, then what will happen? What will happen if the actors are forced to face the world without a script? Isn't that what death is about?
 
 Death regularly escapes the narrative. 
 

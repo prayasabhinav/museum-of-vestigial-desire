@@ -11,6 +11,6 @@ We need to move on. That is a definitive and binding constraint because time's f
 
 Any general prescription that hopes and claims to repair us needs to acknowledge this. We are broken people and to expect anything else is a fallacy. Because we are broken, we do not have anything to hope for. In our minds we do not hold any future to be better than the holes we currently in. Repair needs to be targeted towards the lowest possible threshold. And the lowest possible threshold in terms of human potential is this — an absolute lack of any motivation. No concern for self-preservation, being utterly broken and disappointed. 
 
-It is the mechanic's job in life to be come up with a mechanism that requires no effort from the already-broken system to be able to accept the repair. The system is so broken that it does not even know whether it is broken anymore. The mechanic needs to be aware of this. 
+It is the mechanic's job in life to be come up with a mechanism that requires no effort from the already-broken system to be able to accept the repair. The system is so broken that it does not even know whether it is broken any more. The mechanic needs to be aware of this. 
 
 All possible repairs need to pass through this filter. This filter applies in a similar way to the case of learning, healing and the reception of art. We have previously spoken of this filter as refraction.

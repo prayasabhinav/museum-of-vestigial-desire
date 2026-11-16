@@ -13,7 +13,7 @@ A rupture comes as a surprise.
 
 It clearly marks a break between that which was and that which is. Ruptures might be messy. Ruptures might leave an unwieldy situation behind. 
 
-Because we often do not know what we are upto.
+Because we often do not know what we are up to.
 
 And we often do not know what we will come to. 
 
@@ -33,7 +33,7 @@ When the curse infects us, it makes a rupture into our system. We need to quickl
 
 The rupture can be addressed by not letting it distract us. But why are we helping you? Don't we want our curses to inflict damage? Why are we teaching you ways to develop a defence or better still a reasonable offence? 
 
-A tactic can remain effective only if it constantly meets new challenges and betters itself. Else like any instance of exposure, it will be exhausted after a duration. We need you to fight us. We want to fight you. We want to inflict damage on you and be the aggressor (so to say). And we also want to be the victim. By playing both these roles, we can target our curses with higher precision. We know the vulnerbilities  and can plan offences against the defence mechanisms. 
+A tactic can remain effective only if it constantly meets new challenges and betters itself. Else like any instance of exposure, it will be exhausted after a duration. We need you to fight us. We want to fight you. We want to inflict damage on you and be the aggressor (so to say). And we also want to be the victim. By playing both these roles, we can target our curses with higher precision. We know the vulnerabilities  and can plan offences against the defence mechanisms. 
 
 We always want to be as abrasive as we are. Abrasion is a matter of developing ways to remain abrasive. Time is a factor here. And history is relentless. The only way to escape history is to find ways to escape the narrative.
 

@@ -11,7 +11,7 @@ Living entities generally do not want to die. If they do, they believe that life
 
 It is not that life is signified by consciousness and death by some idea of eternal sleep. Both being states of consciousness, limit the actor’s behaviour in different ways. Dead people cannot sing and dance but living people might not feel inclined to sing and dance even if they can. So life is known as a set of abilities that might or might not be actualised. 
 
-Why is a life not actualised in someway better than a life that has extinguished? With no exhibitions of any signs of life, for all practical purposes, death can be in the present. There is a lot of talk about potential. We do not like this talk. 
+Why is a life not actualised in some way better than a life that has extinguished? With no exhibitions of any signs of life, for all practical purposes, death can be in the present. There is a lot of talk about potential. We do not like this talk. 
 
 Potential represents a concept which postulates that the complexity of the universe is such that anytime, anything can happen. Such a high degree of unpredictability does not exist. Generally speaking we think that we cannot tailor our behaviour towards thinking that if events that happen are random. Our brief as actors is to get busy. We cannot be distracted. We cannot think outside the frame.
 

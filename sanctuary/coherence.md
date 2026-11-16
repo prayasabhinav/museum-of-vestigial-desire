@@ -13,6 +13,6 @@ We use many different ways of understanding who a person is. We have many differ
 
 I refuse to fit into the trauma of your specifications. I really have somewhere else to go. I can really pretend to misread, not-read, noise-read and be scott free of repercussions.
 
-Coherence demands the strength to consistently speak the same lie. When you travel this becomes apparent. Nothing remains the same and learning to read new maps is the task at hand. Travel demands a bridging-over tackling new faces asking question, habits dry and crumble. People can compare us only across days or weeks. We can be inventive (and re-inventive) and tentative. If everyone was compulsively traveling all the time, there would be no wars, no murders. People would just wait for a new travel-cycle to kick in. People you don't like will just move on. 
+Coherence demands the strength to consistently speak the same lie. When you travel this becomes apparent. Nothing remains the same and learning to read new maps is the task at hand. Travel demands a bridging-over tackling new faces asking question, habits dry and crumble. People can compare us only across days or weeks. We can be inventive (and re-inventive) and tentative. If everyone was compulsively travelling all the time, there would be no wars, no murders. People would just wait for a new travel-cycle to kick in. People you don't like will just move on. 
 
 Maybe if anyone stays at any place for too long, they should blow up? That sure will make people follow their compulsions. That sure will ensure definitive incoherence.

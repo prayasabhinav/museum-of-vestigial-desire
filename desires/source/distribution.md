@@ -27,7 +27,7 @@ Talking is an efficient means of distribution of content.
 
 If we don't talk, the air around us is thin. 
 
-Mimicking talking as a distribution framework is difficult. Words when they are written and are printed on paper become something else. The written word find its reader with a lot of difficulty. Sometimes, like bombs lying undetonated in the cellar, the written word lies unread for too long and loses its sting. Reading a word after it has lost its sting is not effective and is benign. It does not communicate anything anymore. Sometimes they even become an overly cumbersome burden. 
+Mimicking talking as a distribution framework is difficult. Words when they are written and are printed on paper become something else. The written word find its reader with a lot of difficulty. Sometimes, like bombs lying undetonated in the cellar, the written word lies unread for too long and loses its sting. Reading a word after it has lost its sting is not effective and is benign. It does not communicate anything any more. Sometimes they even become an overly cumbersome burden. 
 
 Having too many unread books around you is a problem. They are like a traffic jam, like a cloudy head, like a window with a cupboard in front of it.
 

@@ -19,7 +19,7 @@ The outer wrapper of an idea that lets you place it is the package.
 
 Culturally we have lost the ability to look at naked ideas. We need to compulsively engage with the package first and only then we can allow ourselves to unwrap it and deal with it.
 
-Sometimes the unwrapping never happens. Ideas go on being accessed in a way that does't betray penetration.
+Sometimes the unwrapping never happens. Ideas go on being accessed in a way that doesn't betray penetration.
 
 The ability of the package to be a kind of surrogate for the content is well-known. We are not talking about the inherent laziness of the populace in investing their cognitive resource in ideas and their unwillingness to live as deep, enlightened beings. 
 

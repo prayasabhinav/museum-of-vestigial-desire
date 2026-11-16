@@ -17,6 +17,6 @@ Supply can also be that which is present in a limited amount. It is this limited
 
 Supply is limited when time is gasping. But time is not always gasping. There are times when it is shrugging. Reluctant, queer and splendid. Why queer? Moments are accelerated so that they are slipshod. Supply is source sometimes and source is supply times. These words intermingle and it is alright if they do. Words intermingling is the same as relationships intermingling. My wife is your wife? No. Your wife is my wife? No. 
 
-Fond memories are not always fond. Sometimes they are risky. Sometimes they are ludicrous. And they are born still. These transactions are all finally shortchanged. There is breath and there is short breath and there is deep breath. And each has its meaning, position and style. 
+Fond memories are not always fond. Sometimes they are risky. Sometimes they are ludicrous. And they are born still. These transactions are all finally short-changed. There is breath and there is short breath and there is deep breath. And each has its meaning, position and style. 
 
 If not then what does it all add up to? Nothing. Nada. Zilch. In the swagger of our moods, we let things pass. But we should not let. Because in the swagger of our moods our words  can become monuments…

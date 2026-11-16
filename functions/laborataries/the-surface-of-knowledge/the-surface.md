@@ -15,7 +15,7 @@ Surfaces are left exposed and wars are fought on the basis of the internal conte
 
 Because thought has ceded the surface to the manipulator, nothing can be dealt with at its face value.
 
-The face value has become the cheaply traded token of information games. Faces are cladded with makeup, we do not really know what anyone looks like anymore. As a surface, faces are struck by the same malady as other surfaces. 
+The face value has become the cheaply traded token of information games. Faces are cladded with makeup, we do not really know what anyone looks like any more. As a surface, faces are struck by the same malady as other surfaces. 
 
 Covers, doors, trailers, samples, excerpts, abstracts, all invitations, all attractors and all pitches are infected. 
 
@@ -25,7 +25,7 @@ Surfaces are plastic as well as created by meta-data. Meta-data creates webs of 
 
 Surfaces as packaging have become the battleground for capital. This battleground operates on design, the better and more intelligent the design, the more potent the force. Design is again a factor of capital, if you can afford better design, you can optimise your utilisation of the surface. Design is an empty practice because it is essentially only a pseudo-science for manipulating minds by reverse-engineering the human cognition. Culture has manipulated its subjects more efficiently only because of sophisticated design. Now, you know. Design is one of the focal points of our attack. Destroy design.
 
-When hyper concentrations of content aggregate together on surfaces, they sometimes call themselves art. Art is only valid as a found object. As an object with notional value and a place in the pragmatics of exchange it is an impostor. Disbelieve in the systems of producing art. But, do not disbelieve in its emergence; inspite of everything, it might still be possible.
+When hyper concentrations of content aggregate together on surfaces, they sometimes call themselves art. Art is only valid as a found object. As an object with notional value and a place in the pragmatics of exchange it is an impostor. Disbelieve in the systems of producing art. But, do not disbelieve in its emergence; in spite of everything, it might still be possible.
 
 The surface of our minds — our psyche — has been touched too often by the intentioned tentacles of the world. Now our minds are perturbed and hungry, they will only satisfy on self-destruction.
 

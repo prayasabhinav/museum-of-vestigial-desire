@@ -7,7 +7,7 @@ tags: ["field notes"]
 
 # Disappointment
 
-When signals cross in the air, sometimes failures can look like intervals. Endgames can seem like intermissions and hope can seem like a simple default emotion. In most cases road accidents are difficult to predict, preempt and control. Accidents are of course multi-variate situations. It doesn't matter whose fault it is, everyone suffers the damage. Such accidents have the potential to be understood as natural disasters. Unexplainable in terms of causal factors, these accidents seem to be spontaneous and wilful. 
+When signals cross in the air, sometimes failures can look like intervals. Endgames can seem like intermissions and hope can seem like a simple default emotion. In most cases road accidents are difficult to predict, pre-empt and control. Accidents are of course multi-variate situations. It doesn't matter whose fault it is, everyone suffers the damage. Such accidents have the potential to be understood as natural disasters. Unexplainable in terms of causal factors, these accidents seem to be spontaneous and wilful. 
 
 City life is governed by public relations exercises. At the time truckloads of cash used to be moved every month from the municipality to the offices of the film industry. Mayors around the world realised that if there was going to be any sustained idea of a civilisation, prototypes will have to be created by the cultural operators soon. So they didn't just fund all the films based in cities around the world, conveying that stretchability, that infinite playground of potential of city life, but they wrote all the scripts as well. 
 

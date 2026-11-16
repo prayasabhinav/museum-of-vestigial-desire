@@ -7,7 +7,7 @@ tags: ["tent"]
 
 # Risk
 
-We want to engage with the public because we want to expand our capacity of dealing with risk. We live inside a template. This template suggests a range of social relations, a pattern of social interactions and behavioral norms that become constraints rather than conditions. To discover anything new, we have to break these norms. But, what is this risk that we want to deal with? Risk is always the barrier that stands between us and the new pattern of sociality that can disrupt our lives. This possibility of this disruption hides behind it the unknown. The unknown is such that we cannot talk about it. If we managed to figure how to talk about it, we would know it. And we don't. And the only way we can get to know this is by taking this risk . 
+We want to engage with the public because we want to expand our capacity of dealing with risk. We live inside a template. This template suggests a range of social relations, a pattern of social interactions and behavioural norms that become constraints rather than conditions. To discover anything new, we have to break these norms. But, what is this risk that we want to deal with? Risk is always the barrier that stands between us and the new pattern of sociality that can disrupt our lives. This possibility of this disruption hides behind it the unknown. The unknown is such that we cannot talk about it. If we managed to figure how to talk about it, we would know it. And we don't. And the only way we can get to know this is by taking this risk . 
 
 This risk can only be taken by modelling a new possibility.
 

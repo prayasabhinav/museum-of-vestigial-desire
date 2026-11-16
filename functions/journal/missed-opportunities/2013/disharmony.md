@@ -19,4 +19,4 @@ For the sake of empathy the "we" that we have created here is supposedly as vuln
 
 We can also give you a straight set of guidelines. We can tell you how you can dislodge yourself from this pathogenic dependency on the will of a world that wants to enslave you. 
 
-You should keep wiping your memory every now and then so that you do not remember if you are experiencing disharmony or harmony. If you do that you can disengage with the cosmic plan and create your own disaster. You do not have to let the universe guide you anymore.
+You should keep wiping your memory every now and then so that you do not remember if you are experiencing disharmony or harmony. If you do that you can disengage with the cosmic plan and create your own disaster. You do not have to let the universe guide you any more.

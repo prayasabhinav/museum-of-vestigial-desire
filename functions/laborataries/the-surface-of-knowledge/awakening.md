@@ -7,7 +7,7 @@ tags: ["gum"]
 
 # Awakening
 
-Being awakened, does not imply being perfect or even being morally superior to anyone. Being awake is just to say that the angst is not held back anymore. It finds an expression in multiple forms and one of them is the articulation of itself with a calmness that doesn't betray any impatience to give into it. 
+Being awakened, does not imply being perfect or even being morally superior to anyone. Being awake is just to say that the angst is not held back any more. It finds an expression in multiple forms and one of them is the articulation of itself with a calmness that doesn't betray any impatience to give into it. 
 
 Being awake is a quality of being that allows for no distortion between experience and its being processed as a plot which needs decisions and actor behaviour choices to be made. The lack of distortion means that there is minimum noise between deciding and acting upon it. This lack of noise could be seen as a kind of auto-pilot state too.
 

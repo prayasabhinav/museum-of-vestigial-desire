@@ -11,7 +11,7 @@ The remote in the context of a browser and the remote in the context of regular,
 
 In the scope of experience, outside the browser, the remote encompasses all the experiences that are at that moment not current. Currentness decides the split between the experiences that are local and the ones that are remote.
 
-In experiential terms we value the local over the remote. The local is the currently unraveling experience, the remote is either the past or the future. The remote is remote on the timeline. 
+In experiential terms we value the local over the remote. The local is the currently unravelling experience, the remote is either the past or the future. The remote is remote on the timeline. 
 
 When you gain the ability to synthesise the production of the local experience spontaneously, you are able to fluidly blend in the past, future and the current into one visceral experience. 
 
@@ -29,7 +29,7 @@ We are pre-occupied in the present by the sensory bits of experience. While thin
 
 Multiple also-tagged information tracks are dealt with in the same channel of time to produce local experience. 
 
-How do radically surprising things happen in the present if they are mashups of two tracks of information, one of which is already pre-populated? 
+How do radically surprising things happen in the present if they are mash-ups of two tracks of information, one of which is already pre-populated? 
 
 Surprise is a product of experience, but it is also a product of the sustenance of the lag. When the lag lapses, we experience a breakage in the felt pattern of experience.
 

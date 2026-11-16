@@ -7,7 +7,7 @@ tags: ["waste"]
 
 # Repair
 
-There are broken chairs that are not even functional anymore. Broken chairs cannot be used as sitting surfaces anymore. They can only be symbols for their intended function. But broken chairs can be repaired and once chairs are repaired they can be used for their intended purpose but at the same time the fragility of their brokenness comes across as a fact also. How is the ghost image of the broken chair unshackled eventually from the chair that has been repaired?
+There are broken chairs that are not even functional any more. Broken chairs cannot be used as sitting surfaces any more. They can only be symbols for their intended function. But broken chairs can be repaired and once chairs are repaired they can be used for their intended purpose but at the same time the fragility of their brokenness comes across as a fact also. How is the ghost image of the broken chair unshackled eventually from the chair that has been repaired?
 
 Can the image of an object ever be repaired? Or are objects maligned forever after they break once?
 

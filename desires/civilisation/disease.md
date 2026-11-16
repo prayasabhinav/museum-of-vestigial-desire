@@ -7,9 +7,9 @@ tags: ["symptoms"]
 
 # Disease
 
-Cities are cesspools of disease. Of many kinds. Those that effect the whole body as well as those that only effect only specific senses. Like there is a disease that effects vision in a way that makes everything seem real. Ghost and physical entities become the same. Eyes make it possible to be adjusted to an entirely synthetic city. There is no need anymore for cities to be an interplay between the natural and synthetic. Everything is synthetic. 
+Cities are cesspools of disease. Of many kinds. Those that effect the whole body as well as those that only effect only specific senses. Like there is a disease that effects vision in a way that makes everything seem real. Ghost and physical entities become the same. Eyes make it possible to be adjusted to an entirely synthetic city. There is no need any more for cities to be an interplay between the natural and synthetic. Everything is synthetic. 
 
-I do not remember the names of all the diseases that I am cataloging here. At the time I discovered them I did not think that they would propagate at the scale they eventually did. Maybe I even treated them as trivial phenomenon. 
+I do not remember the names of all the diseases that I am cataloguing here. At the time I discovered them I did not think that they would propagate at the scale they eventually did. Maybe I even treated them as trivial phenomenon. 
 
 In the days of study, I remember observing other diseases too. The one, for instance that effects the sense of smell. It neuters it, it allows us to live the foul smell of dead space around. Space dies when from a shamanical resource and raw poetry it becomes a part of coordinate systems and maps. When it becomes the unit of the entire system of property. In the smell of dead and dying space can be felt the agony and trauma of cosmic pores getting plugged. Humans are trying to make spaceships, inter-galactic telephones, time-machines. We chase these as if they were answers to elusive riddles. Finding these answers underneath our feet would be a disappointment. 
 

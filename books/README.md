@@ -7,7 +7,7 @@ tags: ["factor"]
 
 # Books
 
-Books are not self-contained. They are not unitary. They are social beings. Because when we read we can hear the voice of the author. The imagination of the author's persona is the active experience of reading. This imagination is like a courtship. It is sequential, it reveals itself in steps, it assumes an objectective and pursues it relentlessly.
+Books are not self-contained. They are not unitary. They are social beings. Because when we read we can hear the voice of the author. The imagination of the author's persona is the active experience of reading. This imagination is like a courtship. It is sequential, it reveals itself in steps, it assumes an objective and pursues it relentlessly.
 
 The most disturbing aspect of reading is hearing a sharp and clear voice but not being able to hear the voice of one's own self at all. Reading is harmless. It is like listening to music inside your head. The only suggestion we have is to read after you can at least hear murmurs of your own voice.
 

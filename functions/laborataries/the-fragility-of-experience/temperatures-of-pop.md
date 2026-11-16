@@ -75,7 +75,7 @@ But this was not possible because of the loop described above.
 
 Through the thick of the antagonism flying through the air, Lukewarm reached out and tried to start cooperating with Lensman. With this sudden interest in collaboration, even-though he suspected a controversy, Lensman relented.
 
-He changed his perspective that Lukewarm was out to harm him and was opposed to him and started seeing him as family. Family is naturally aligned to your interests because of all the contractual inter-dependancies. There are numerous restrictions on family-members because they can kill you very easily. 
+He changed his perspective that Lukewarm was out to harm him and was opposed to him and started seeing him as family. Family is naturally aligned to your interests because of all the contractual inter-dependencies. There are numerous restrictions on family-members because they can kill you very easily. 
 
 To prevent death at home, within the space supposed to nurture the family toward the performance of its functions, the familial system of control was created.
 
@@ -142,9 +142,9 @@ But when he found none, he was dejected. He left the order of the monks. He resi
 
 He asked his parents if he could stay with them. He explained that he was searching for meaning so he could not afford his own house. They let him stay there but for a few days only they asked them a lot of questions. "Didn't the monastery provide any meanings? Why did he come back if his search had not ended?"
 
-He replied that the monastery was destroyed by an asteroid crash and if it had any meaning it couldn't have just gone. He said that he was starting his search all over again because he was shaken up, he couldn't believe in any order anymore and had to search for meaning on his own.
+He replied that the monastery was destroyed by an asteroid crash and if it had any meaning it couldn't have just gone. He said that he was starting his search all over again because he was shaken up, he couldn't believe in any order any more and had to search for meaning on his own.
 
-His aged parents did not ask him anymore questions and left him alone. His mother cooked three times a day and he gratefully ate whatever she gave him.
+His aged parents did not ask him any more questions and left him alone. His mother cooked three times a day and he gratefully ate whatever she gave him.
 
 Everyday, the monk set out on foot and hoped to run into someone who would tell him something that helped him in his struggle. But he met no one and his quest remained unfulfilled. 
 
@@ -158,7 +158,7 @@ What you don't know, can be anything. What you know is nothing.
 
 The monk started feeding the dog and taking care of it. He even gave it a bath. He gave it a name: Chitti. Chitti means a letter in Hindi. And that is what the dog was for him. Else why would it have come back?
 
-When it started raining, the monk allowed Chitti to come into the house. The monk's parents were not very happy with this but then they had given up on their son and they couldn't talk to him anymore. 
+When it started raining, the monk allowed Chitti to come into the house. The monk's parents were not very happy with this but then they had given up on their son and they couldn't talk to him any more. 
 
 Chitti slept under the monk's bed for the three days and three nights that it rained.
 
@@ -190,7 +190,7 @@ But the dying skeleton kept flying.
 
 When it started raining, the bird had to take shelter. The bird took shelter on a tall tree. At that height it stops mattering what tree it is and it just matters if it offers space enough to hide. Looking at the whole world being submerged in rain from that height was a vision that offered freedom. And the bird took it. 
 
-It left the question, and the seeking slipped away. It floated away freely into the high skies. If at time the monk would have come alive and reminded the bird of its birthing ritual, the bird might have felt embarrassed. Much like a teenager, partly relieved and partly guilty for escaping, the bird wouldn't have soared anymore.
+It left the question, and the seeking slipped away. It floated away freely into the high skies. If at time the monk would have come alive and reminded the bird of its birthing ritual, the bird might have felt embarrassed. Much like a teenager, partly relieved and partly guilty for escaping, the bird wouldn't have soared any more.
 
 But the monk didn't come alive and the bird soared away. 
 
@@ -244,7 +244,7 @@ They did no know that the clouds that were in the sky were also a symptom of the
 
 At best, everything visible is a prop that is a part of the fiction. 
 
-Nature was not natural anymore. Because it needed a special word to describe it. Natural? What does nature mean? What else would it be if not natural.
+Nature was not natural any more. Because it needed a special word to describe it. Natural? What does nature mean? What else would it be if not natural.
 
 Everything is natural all the time. There is no threshold. 
 
@@ -318,7 +318,7 @@ The warriors and the fortress had come from the future. In the future emotion wa
 
 These emotions were found to not serve a purpose only because they were not enacted passionately enough. But these children were sincere and they felt fully. 
 
-The warriors who descended from the sky did not know how to deal with raw emotion anymore. They succumbed to their wide-eyed stares. They became trees and mountains and blades of grass. They became what they were afraid of. Plants and trees are essentially naked strands of emotion. The warriors had forgotten how to deal with the sting of emotion. They succumbed easily.
+The warriors who descended from the sky did not know how to deal with raw emotion any more. They succumbed to their wide-eyed stares. They became trees and mountains and blades of grass. They became what they were afraid of. Plants and trees are essentially naked strands of emotion. The warriors had forgotten how to deal with the sting of emotion. They succumbed easily.
 
 The fortress became an ocean.
 
@@ -336,17 +336,17 @@ Years and decades passed and the children slept there. Engrossed in their dreams
 
 Temper is a liquid. When the situation is offensive enough, this liquid boils over. At any given time, there is no singular circumstance. There are always multiple actualities within each moment. Navigating these is not a choice but a matter of knowledge. And knowledge is an expression of the past narrative. Narratives are spun by complexity. There is never any simple story. Only true ones and false ones. 
 
-Temper is a frightening emotion. It offers you nothing back in return. And uses you for its own ends. Because it is liquid, the pursuance of its ends is being gaseous. In a gaseous form anger is not personal anymore. It floats away into the crevices of this world and resides there. With empty eyes, when you glance at the world, you see craftiness in the world. This craftiness is the angst. It is what the anger becomes. Angst is just impersonal anger. 
+Temper is a frightening emotion. It offers you nothing back in return. And uses you for its own ends. Because it is liquid, the pursuance of its ends is being gaseous. In a gaseous form anger is not personal any more. It floats away into the crevices of this world and resides there. With empty eyes, when you glance at the world, you see craftiness in the world. This craftiness is the angst. It is what the anger becomes. Angst is just impersonal anger. 
 
 Because of the anger in our hearts, the world is a bitter place. 
 
-The bitterness got to Ha in a critical way. He was sleeping. It entered him through his open mouth. Ha slept with his mouth open. His nose was no longer functional. He had evolved, moved away from his animal self. He could not smell anything anymore. 
+The bitterness got to Ha in a critical way. He was sleeping. It entered him through his open mouth. Ha slept with his mouth open. His nose was no longer functional. He had evolved, moved away from his animal self. He could not smell anything any more. 
 
 Ha's smell impairment prevented him from being sensitive. Sensitive to spaces, sensitive to people, sensitive to the nip in the air, to emotion. This insensitivity made him dull. He pretty much did anything that he thought could be done. His girlfriend, Sa, was aware of his compulsion to think. And she was aware of his drift away from his animal instincts. She was worried. But she hid her anxiety. She had seen many who had tendencies like Ha. Her own father and brother had been slaves to thought. They died thinking of life. And when they perished, the air remained overhung with desperation. 
 
 Sa did not want this to happen to Ha. Pining for life in the moment of death just ruins everything. The flavour of the last conscious moment is desperate. This flavour is not really significant in the sense that it determines anything. But it is significant in the sense that it is that the last memory that other people have of you before you die. And this memory makes them think of you as weak. As someone lacking courage. It takes courage to stare death in the face. Because all that you have been disappears in a moment. 
 
-They were both soldiers in the rebel army. They were practiced killers. They had each killed many with their own hands. In the act of killing they stared at the face of the dying opponent. They tried to catch a glimpse of death itself. But they never did. It came and snatched the last breath away. They did not notice its coming. They did not even notice its shadow. They did not even feel the temperature of air changing. 
+They were both soldiers in the rebel army. They were practised killers. They had each killed many with their own hands. In the act of killing they stared at the face of the dying opponent. They tried to catch a glimpse of death itself. But they never did. It came and snatched the last breath away. They did not notice its coming. They did not even notice its shadow. They did not even feel the temperature of air changing. 
 
 This had become the biggest problem of their lives. They killed. But they did not do anything.  So, what happened? What was death? 
 
@@ -354,7 +354,7 @@ This had become the biggest problem of their lives. They killed. But they did no
 
 "So the people we kill are just lying in limbo?" Sa asked. 
 
-"Yes, life is a function. When we strike with our sword, we disrupt this functioning. Their bodies are not alive anymore. They are dysfunctional." 
+"Yes, life is a function. When we strike with our sword, we disrupt this functioning. Their bodies are not alive any more. They are dysfunctional." 
 
 "So by using this word, we treat this word as if it was another state. As if it was another kind of life."
 
@@ -390,15 +390,15 @@ At this point, their bodies stopped functioning and they were technically dead.
 
 Their dead bodies had no stench. Their dead bodies lay in the sun for a few days and then they just evaporated. Their house was locked from the inside. They had no friends. No one missed them. There were no remains to remember them by (if at all there was anyone to remember them). By evaporating, the personal became the impersonal. They merged into the air and air cannot be contained. It flows everywhere. People breathe naturally and Ha and Sa get rooted into everybody's psyche. Everyone starts speculating on death. The common experience of life changes. 
 
-With people at large contemplating on death, the life and death flux was not casual anymore. Death moved from the predestined indefinite to a necessary and definitive thing to understand. Life was not innocent and rosy up until the onset of old age, illness and death. The taste of death was never forgotten. The shadow always loomed large. In the shade, the schizoid was not an outcast but a deity. The schizoid taught people how to float away from superfluous emotion. The everyday took on a dry flavour. Feelings were understood to be a cognitive load. A waste. The shadow of death is not cool. It is fiery. It has a distilling effect on the entities that it is cast. It distills the truth from history. Historians in these times had a unique access to all of the past times and the stories that operated behind the scenes. For some time history became a narrative of things as they actually happened. In the shadow of death, history became a authoritative record of the past times. And this changed how people and societies looked at themselves. The idea of human culture changed. From an idea that represented grand gestures, ideologies and mythologies an understanding dawned that looked at human culture just as a sequence of mis-steps. Emotion disappeared like a vacuous entity. The shadow of death transformed ordinary fetish objects into objects of art. The philosophers into Gods. Transcendence was not seen anymore as a viable option. Death was certain. Some went to far as to pine for death, as it was the only irrefutable event. 
+With people at large contemplating on death, the life and death flux was not casual any more. Death moved from the predestined indefinite to a necessary and definitive thing to understand. Life was not innocent and rosy up until the onset of old age, illness and death. The taste of death was never forgotten. The shadow always loomed large. In the shade, the schizoid was not an outcast but a deity. The schizoid taught people how to float away from superfluous emotion. The everyday took on a dry flavour. Feelings were understood to be a cognitive load. A waste. The shadow of death is not cool. It is fiery. It has a distilling effect on the entities that it is cast. It distils the truth from history. Historians in these times had a unique access to all of the past times and the stories that operated behind the scenes. For some time history became a narrative of things as they actually happened. In the shadow of death, history became a authoritative record of the past times. And this changed how people and societies looked at themselves. The idea of human culture changed. From an idea that represented grand gestures, ideologies and mythologies an understanding dawned that looked at human culture just as a sequence of mis-steps. Emotion disappeared like a vacuous entity. The shadow of death transformed ordinary fetish objects into objects of art. The philosophers into Gods. Transcendence was not seen any more as a viable option. Death was certain. Some went to far as to pine for death, as it was the only irrefutable event. 
 
 The world changed completely. 
 
 Very few things remained the same. But some that did are worth narrating. Earlier, death was considered inauspicious and was thought to be a disease. Even now death was thought to be an affliction. But now, this affliction was considered holy. A force that could be worshipped and tamed. The devotee could ask the force for protection. The devotee could ask the force for healing. Because darkness can only be offset by the dark, such a format of prayer was even effective. 
 
-In a quixotic way, the guardian angel of this time was death itself. And nobody could mess with death. So, before succumbing to death, all the living were healthy and fulfilled in every way. Emotion had already been discarded. Happiness was not even a familiar concept anymore. 
+In a quixotic way, the guardian angel of this time was death itself. And nobody could mess with death. So, before succumbing to death, all the living were healthy and fulfilled in every way. Emotion had already been discarded. Happiness was not even a familiar concept any more. 
 
-When people slept, they had nightmares. In these nightmares they saw people who guarded malice with emotion. They woke up fearing that they had traveled back in time and people were employing emotion again as a device for encoded social communication. Still others had nightmares that showed them that instead of accepting death as a standard and regular event, people are using religion and intellect to deny it. 
+When people slept, they had nightmares. In these nightmares they saw people who guarded malice with emotion. They woke up fearing that they had travelled back in time and people were employing emotion again as a device for encoded social communication. Still others had nightmares that showed them that instead of accepting death as a standard and regular event, people are using religion and intellect to deny it. 
 
 Nightmares reveal fears. Fears which are otherwise too potent to be acknowledged casually in waking life. The fear that the change which had come about was not permanent haunted  the society for a generation or two. But then it disappeared. 
 
@@ -424,7 +424,7 @@ Eating the ducklings was not really an exotic affair. Because these ducks had a 
 
 After resetting Gar was wary of being a monster. All the sentiment that had to be mustered to frighten the ducklings, run after them, didn't yield any good. Eventually he had to bear the brunt of his monstrosity. 
 
-For a half actual, half imagined being there aren't many options. For a dolphin-dragon hybrid, the mould is already made. The pose is already given a name. To effect a transition, a transition point has to be defined. So Gar did what was the easiest. Gar snapped back to his base state, he gave up on his imagined persona. He became a dolphin. He agreed that there were really no dragons in the world. This agreement led to the disappearance of the imagined appendages of his body. He became normal animal. No one was afraid of him anymore. 
+For a half actual, half imagined being there aren't many options. For a dolphin-dragon hybrid, the mould is already made. The pose is already given a name. To effect a transition, a transition point has to be defined. So Gar did what was the easiest. Gar snapped back to his base state, he gave up on his imagined persona. He became a dolphin. He agreed that there were really no dragons in the world. This agreement led to the disappearance of the imagined appendages of his body. He became normal animal. No one was afraid of him any more. 
 
 In the absence of the context of fear, Gar did not know how to conduct the business of survival. When he approached, ducklings did not run here and there. He was lost. When he jumped high above the water, to look at his own reflection, he saw that he was just a dolphin. He had no fangs, he could not blow fire. He had no wings and he did not have a mythology attached to him. 
 
@@ -432,13 +432,13 @@ He was just a fish and he could live only in water and no one was afraid of him.
 
 So Gar went to a witch doctor. Witch doctors were still popular amongst dolphins. Dolphins do not have critical parts of their brain. One of these is the part that conducts a study of science. No scientific knowledge is archived in the minds of dolphins. For them the experience of everyday life is like a wild array of things that they cannot possibly understand. So they go to witch doctors and ask them what to do. The witch-doctor-dolphin asks Gar to go eat some small fish and that act of aggression will teach him how to inspire fear again. 
 
-So Gar went to eat small fish. Eating the small fish was very easy. There was no challenge. It was like biting berries in a field. Soon Gar got bored of eating the small fish, which did not put up any struggle and did not even try to escape. They did not exhibit signs of fear, they seemed resigned. They did not exhibit signs of hope anymore. Hope being a fraudulent emotion, only offers choices which are as fictional as the content of hope. Any projection into the future is a sign of a speculative malady. This cannot be dealt with in any other way than a dream, an attractive story. Hope being a trigger and an emotion for action is a pathogenic sentiment. How can one act on tendencies which are at best only symbols of a lost cause. 
+So Gar went to eat small fish. Eating the small fish was very easy. There was no challenge. It was like biting berries in a field. Soon Gar got bored of eating the small fish, which did not put up any struggle and did not even try to escape. They did not exhibit signs of fear, they seemed resigned. They did not exhibit signs of hope any more. Hope being a fraudulent emotion, only offers choices which are as fictional as the content of hope. Any projection into the future is a sign of a speculative malady. This cannot be dealt with in any other way than a dream, an attractive story. Hope being a trigger and an emotion for action is a pathogenic sentiment. How can one act on tendencies which are at best only symbols of a lost cause. 
 
 Reading before the word is written on the page is a lost cause and can never be performed. 
 
 The witch doctor's advice did not help. Eating the small fish did not help Gar to learn now to inspire fear again. Without knowing how to inspire fear, Gar couldn't survive. He perished soon.
 
-After he perished, the sea was calm. There was no one around to commit random acts of micro-terror. There was no one aspiring to be a monster anymore. Without this aspirational monstrosity, the world became too sweet a place. This sweetness became a culture for many small life forms to germinate and nurture. These cultured life-forms were salty. They began to counter the sweetness of the ocean.   There began a struggle between the sweetness of the ocean and the saltiness of the life forms. The sweetness was produced as a result of homogeneity and an absence of a flux. The saltiness was produced by the sweat of the micro life-forms. The sweat glands of the organisms were massive. The pores that let the sweat leak out of the body were in fact bigger than the body-frame of the micro-organisms itself. So the micro-organisms looked like gaping voids. The voids were such that often they often fell into each other. When they fell, they thought they were falling into a portal. But these openings were only like windows. They did not affect their position in the narrative at all. Everything remained the way it was. This was a problem because the narrative was dependent on interventions that provided periodic shifts. So there was no dynamism to fuel the flux.
+After he perished, the sea was calm. There was no one around to commit random acts of micro-terror. There was no one aspiring to be a monster any more. Without this aspirational monstrosity, the world became too sweet a place. This sweetness became a culture for many small life forms to germinate and nurture. These cultured life-forms were salty. They began to counter the sweetness of the ocean.   There began a struggle between the sweetness of the ocean and the saltiness of the life forms. The sweetness was produced as a result of homogeneity and an absence of a flux. The saltiness was produced by the sweat of the micro life-forms. The sweat glands of the organisms were massive. The pores that let the sweat leak out of the body were in fact bigger than the body-frame of the micro-organisms itself. So the micro-organisms looked like gaping voids. The voids were such that often they often fell into each other. When they fell, they thought they were falling into a portal. But these openings were only like windows. They did not affect their position in the narrative at all. Everything remained the way it was. This was a problem because the narrative was dependent on interventions that provided periodic shifts. So there was no dynamism to fuel the flux.
 
 In this unstable world there was no clear movement. Things jiggled and juggled but there was no clear vectors emerging. 
 
@@ -458,7 +458,7 @@ When the world was empty of bodies, emotions flew around and settled like dust o
 
 This availability of surface was a matter of chance. Emotions few around because in those days a ferocious wind blew and this wind was blowing because there was nothing to contain it. There was no landscape, there were no structures, there was nothing to contain the wind. 
 
-The empty world was in fact a forest of ghosts. Ghosts do not have a tongue. Because they do not have a tongue, a mind or a body — now that the world is filled, we do not understand them anymore. For us God is the only boundless being. And there are no sub-sets. There is no idea that even approximates the idea of the holy ghost. Because of this singular idea of God, a lot of things which don't belong to this idea are projected on it anyway. 
+The empty world was in fact a forest of ghosts. Ghosts do not have a tongue. Because they do not have a tongue, a mind or a body — now that the world is filled, we do not understand them any more. For us God is the only boundless being. And there are no sub-sets. There is no idea that even approximates the idea of the holy ghost. Because of this singular idea of God, a lot of things which don't belong to this idea are projected on it anyway. 
 
 When Pinha and Kinha woke up, they knew that this was the day they had been waiting for. They were both identical twins. Their whole life, they had struggled with the idea of God. They wondered how the ghosts who spoke to them in the darkness could be their imagination. They knew the ghosts were real. But the whole domain of things which existed but could not be seen belonged to the idea of God. So if ghosts existed at all, they had to be a part of the idea of God. And ghosts definitely existed. Their conversations in the dark were not imagined. And they were not crazy. That much they knew.
 
@@ -484,7 +484,7 @@ Noise could be factored in and then ignored off as a rounding error.
 
 Nobody cares for the pixel-level loss. If someone did, they could deal with the machine.  
 
-Pinha and Kinha were happy that this union was happening. They were happy because they knew that only when the machine found some way to bundle off psychosis as a rounding error would let it be. Once psychosis is let be, it creeps into the world and infects experience in a way that it cannot be sanitised anymore. Experience that cannot be sanitised becomes a protective veneer for psychosis. 
+Pinha and Kinha were happy that this union was happening. They were happy because they knew that only when the machine found some way to bundle off psychosis as a rounding error would let it be. Once psychosis is let be, it creeps into the world and infects experience in a way that it cannot be sanitised any more. Experience that cannot be sanitised becomes a protective veneer for psychosis. 
 
 Pinha and Kinha were identical twins. Kinha was psychotic. He lived in a different reality, which was sometimes dry and featureless and sometimes flowing with the passion of anger. His anger gushed like a water cannon. Soft and valuable but forceful. His anger was like water and like fire at the same time. It burned him and at the same time it burned the world. 
 
@@ -498,7 +498,7 @@ Once they came out into the open, everyone understood the deception. They unders
 
 The conflict didn't become an all out war. There was no singular battlefield. There were many battlefields and many armies. Sometime the militias switched sides and started shooting everyone and everywhere in general. It was obvious that although they were fighting about it, one side has already won. Psychosis had already crossed the line. Because there is an aspect of experience that if genuinely outside the realm of sanity, then it cannot be controlled. The machine and the crew behind it were wrong in thinking that they were in absolute control, in thinking that nothing was beyond them. 
 
-Pinha was calmer now. He could feel that Kinha was feeling more unencumbered now. He could feel that what was earlier the shadow of anger was now only only a shadow. Anger had disappeared. Because the attempt to keep culture sorted and clean had finally failed. Now there was nothing holding the potential of experience back. The potential was open. Prediction was not possible anymore. 
+Pinha was calmer now. He could feel that Kinha was feeling more unencumbered now. He could feel that what was earlier the shadow of anger was now only only a shadow. Anger had disappeared. Because the attempt to keep culture sorted and clean had finally failed. Now there was nothing holding the potential of experience back. The potential was open. Prediction was not possible any more. 
 
 In the middle of a battle that raged between the citizens and the machine — everyone lost interest in fighting. This happened spontaneously and after this moment everyone suddenly laid down their arms. 
 
@@ -562,7 +562,7 @@ After the fever breaks out, the immediate response is to suffer, collapse and le
 
 In this hell, surface and medium cannot be distinguished. Solvent and plane cannot be told apart. Everything is level, all the privilege, all the karma is lost. History is rendered meaningless because it lacks any expression. Some call this chaos. Some call this hell. Nobody is happy with the state of affairs. Cluster formation became very difficult. No particle, no actor, no agent could bond with the other. There was no scope of any alliance. 
 
-In this world, everything remained in a collapsed condition. No layers formed. No complexity emerged. No secondary and tertiary states registered themselves. In this flat world, there was no way of navigation. No way of overcoming scale. Being lost was the only possibility. But getting lost was not easy. I was not as simple as just forgetting to seek a direction. There was more. In the guise of a common actor's mode of conduct on the field, was hidden a desperate hinder to know its own location. Locating their own bodies on the field forced the actors to look at themselves in a distant way. When you bring in distance in your own self-perception, the distortion and the noise breaks the mould. The shell cracks. All the reluctance and resistance that comes in the way of the actor's acceptance of its own role of a puppet disappears. There is no semblance of a will left anymore. The actor's shell fully collapses and the actor happily gets lost in the environment. 
+In this world, everything remained in a collapsed condition. No layers formed. No complexity emerged. No secondary and tertiary states registered themselves. In this flat world, there was no way of navigation. No way of overcoming scale. Being lost was the only possibility. But getting lost was not easy. I was not as simple as just forgetting to seek a direction. There was more. In the guise of a common actor's mode of conduct on the field, was hidden a desperate hinder to know its own location. Locating their own bodies on the field forced the actors to look at themselves in a distant way. When you bring in distance in your own self-perception, the distortion and the noise breaks the mould. The shell cracks. All the reluctance and resistance that comes in the way of the actor's acceptance of its own role of a puppet disappears. There is no semblance of a will left any more. The actor's shell fully collapses and the actor happily gets lost in the environment. 
 
 After the actor gets lost, the game begins. 
 
@@ -574,7 +574,7 @@ Who is the onlooker? The onlooker is only the inhibited actor who refuses to act
 
 An actor whom refuses to act also ends up acting. This specific acting has an inhibited quality. 
 
-The shadows, traces and the lanes that they make up are like sounds of footsteps in a chase sequence unraveling in a dark forest. They are fleeting and indecipherable. Flashes of light shine and then they don't. "The cloths that you wear, rustle. When they rustle, they spark. The rustling happens when you move. When you will move next, nobody knows."
+The shadows, traces and the lanes that they make up are like sounds of footsteps in a chase sequence unravelling in a dark forest. They are fleeting and indecipherable. Flashes of light shine and then they don't. "The cloths that you wear, rustle. When they rustle, they spark. The rustling happens when you move. When you will move next, nobody knows."
 
 The actors are like vacuous forms generating these shadow and traces which they throw are like double encrypted signals. 
 
@@ -586,4 +586,4 @@ So this onslaught has to be suffered. There is no medicine. There is no escape. 
 
 The fever as a symptom is an empty symbol. It cannot be analysed. I does not mean anything. But as a condition it cannot be escaped from. It is a condition that needs preparation. For some it can feel like a fall. Running to stand still is not an acceptable flow in narrative. There needs to be an escalation, not a fall. But the fever is not a fall. It is a rise. It is not a frailty of the flesh, although it its moment of perishing. When water evaporates into steam, it does not recognise any cessation of being. Transformation is a moment of revelation. The potential becomes known. Even if there were no clues revealed earlier, the moment of transformation does not become a upsetting moment. It remains a moment of celebration, an event that attracts a thunderous applause.
 
-After the fever has passed, a kind of wipe is performed. The fever is not remembered. The moment of transformation is not remembered. In being lost, the only thing remembered is the previous instance of being lost. All the tension involved in the moment of transformation is in vain. The base state of being still falls way below what the buildup promises.
+After the fever has passed, a kind of wipe is performed. The fever is not remembered. The moment of transformation is not remembered. In being lost, the only thing remembered is the previous instance of being lost. All the tension involved in the moment of transformation is in vain. The base state of being still falls way below what the build-up promises.

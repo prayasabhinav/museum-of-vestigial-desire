@@ -15,7 +15,7 @@ Speculation itself is based on current pattern data that informs agents of the d
 
 Treasure is a game world parameter that emerges from this manipulation. 
 
-This manipulation is established by agents but is not always created by them. History, archeology, archival practices, all help rarefy objects and experiences that are also in a seemingly parallel system supported by manipulation. 
+This manipulation is established by agents but is not always created by them. History, archaeology, archival practices, all help rarefy objects and experiences that are also in a seemingly parallel system supported by manipulation. 
 
 Treasure is just a word. It doesn't ensure the treasuring of the treasure object, it just provides a marker. The marker has to be further absorbed into the language of cultural symbology and made meaningful. 
 

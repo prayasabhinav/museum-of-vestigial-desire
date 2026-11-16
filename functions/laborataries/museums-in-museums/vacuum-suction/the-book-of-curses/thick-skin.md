@@ -7,7 +7,7 @@ tags: ["cancer"]
 
 # Thick-skin
 
-Skin is an envelope. It protects us from the elements that remind us of our vulnerablity. If it were not for our skin, we would either have been mobile in a very limited way or not mobile at all. Imagine the marks of all the thorns, all the dust, all the corrosive insect-bites on our naked flesh. We wear clothes to protect our skin, our skin in turn protects our flesh. If both of these were absent, our survival would have been threatened. 
+Skin is an envelope. It protects us from the elements that remind us of our vulnerability. If it were not for our skin, we would either have been mobile in a very limited way or not mobile at all. Imagine the marks of all the thorns, all the dust, all the corrosive insect-bites on our naked flesh. We wear clothes to protect our skin, our skin in turn protects our flesh. If both of these were absent, our survival would have been threatened. 
 
 Our skin does not protect us from conflicts that affect us emotionally. For that we need to be able to develop opacity in our minds. Our minds are not simple to pry on. The electrical signals involved in thought have not even been understood enough for them to be hacked into. But the expressions of our thoughts are easily manipulated. 
 
@@ -31,4 +31,4 @@ Our conspiracy only seeks to achieve one end. And that is to keep us tethered to
 
 Surely, departures are not just episodes of diminishing. Modelling departures to be processes of transition, that have a destination as well as a transit time is possible. Our conspiracy is positing that if we commence a transition in a heightened state of awareness, then we might not be bogged down at that point by regret, memory and fantasy. 
 
-We conspire only to travel with the empty mind of the traveler who is busy performing the travel, the witnessing of varied landscape, the stillness of time.
+We conspire only to travel with the empty mind of the traveller who is busy performing the travel, the witnessing of varied landscape, the stillness of time.

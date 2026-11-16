@@ -21,7 +21,7 @@ There is calibration required at both sides. One, the force of friction binding 
 
 The net experience of this process on the mind of the reader is violence. Reading operates through violence. This violence operates in and on the mind of the reader.
 
-This is a standard tool available to the writer. But it should be used sparingly. It is like grinding, if you grind too much you do not have a surface anymore. If you grind adequately, you get a shine. 
+This is a standard tool available to the writer. But it should be used sparingly. It is like grinding, if you grind too much you do not have a surface any more. If you grind adequately, you get a shine. 
 
 Friction can be controlled by lubricants. Lubricant operates by making the touch-points between the face of the object and the surface. These touch-points are covered by films of fluid. The fluid is thick and viscous and it reduces the friction by reducing the corrosion. When sentences are constructed for the friction there is one range of corrosion that's possible. When the lubricant becomes a parameter also, this range increases.
 

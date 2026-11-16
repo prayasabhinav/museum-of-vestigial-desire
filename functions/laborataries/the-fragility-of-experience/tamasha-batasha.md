@@ -22,7 +22,7 @@ Tamasha likes to talk to himself. In self-talk the distinction between communica
 
 "You cannot expect me to track your maladies."
 
-Tamasha imagined himself talking to himself in a confrontational, high-tension pose — eyeballs to eyeballs, nose to nose. In this pose, he experiences a clarity of the distinct voices that reside in him and the things they want to say. In a more relaxed pose, he does not remember any dialog and he does not know anything worth saying. Confrontation produces content. The clamour of one side putting pressure on the other produces material. 
+Tamasha imagined himself talking to himself in a confrontational, high-tension pose — eyeballs to eyeballs, nose to nose. In this pose, he experiences a clarity of the distinct voices that reside in him and the things they want to say. In a more relaxed pose, he does not remember any dialogue and he does not know anything worth saying. Confrontation produces content. The clamour of one side putting pressure on the other produces material. 
 
 Tamasha was born in a family of farmers. He was accustomed to the idea of life tending to life. He disagreed with the prospect of sociality and did not like to engage with figures to interact with. If distance is needed, enough distance from the self is possible to achieve. It is just a matter of not giving in to the urge when it arises. Instead of feeding yourself affection, feed yourself a few parts affection and a few parts disaffection. 
 
@@ -64,7 +64,7 @@ The adventures that Tamasha experienced are a special feature of this story. The
 
 One day Tamasha was standing under a mango tree. He was standing there waiting for a mango to fall. But none of the mangoes on the tree were ripe and so neither of them had a reason to fall. An unnatural event had to occur. At that time a small kid threw a stone. The stone hit a mango and it fell. But it fell into Tamasha's hands and not the boy's hands. But the boy laid a claim on the fruit because he had thrown the stone. Tamasha laid a claim to the fruit because he had anticipated and waited for long enough at the right spot. Tamasha and the boy started arguing. There seemed to be no quick resolution and they decided to flip a coin. Tamasha won the coin toss and got to keep the mango. Being the actor has its rewards but getting the fruit is not one of them. Being the actor is rewarded by being acted upon. Sometimes you give, sometimes you receive. 
 
-Another day Tamasha was traveling on an escalator and the escalator got jammed. It stopped with a jolt. The jolt was so sudden and so massive that most people fell. Exactly at that time a gunman entered the airport and started firing. The gunman fired crazily everywhere. And because Tamasha was standing, he took multiple bullets in his chest. But inspite of taking multiple hits, he did not go down. The gunman thought that his bullets were fake and that they had no sting. This thought depressed him so much that he shot at himself. But when he shot at himself, he died immediately. The bullets were not fake. The only reason Tamasha remained standing was that he was wearing a bullet-proof vest. And also it was not the right time to die for him. A terrorist committed suicide unnecessarily but the Tamasha of the times remained intact. 
+Another day Tamasha was travelling on an escalator and the escalator got jammed. It stopped with a jolt. The jolt was so sudden and so massive that most people fell. Exactly at that time a gunman entered the airport and started firing. The gunman fired crazily everywhere. And because Tamasha was standing, he took multiple bullets in his chest. But in spite of taking multiple hits, he did not go down. The gunman thought that his bullets were fake and that they had no sting. This thought depressed him so much that he shot at himself. But when he shot at himself, he died immediately. The bullets were not fake. The only reason Tamasha remained standing was that he was wearing a bullet-proof vest. And also it was not the right time to die for him. A terrorist committed suicide unnecessarily but the Tamasha of the times remained intact. 
 
 ### Gloss
 When Tamasha stared into his own eyes, he saw his own reflection. This reflection like all reflections had a white arc within it somewhere. The gloss was not at the centre, it was towards the outer rim of the eye-ball. This gloss was a hole that allowed Tamasha to connect to the sky. The sky was behind the body he stared at. Because of the hole, he was not perfectly blocked. As his super-powers depended on his connection to the sky, Tamasha was not able to deal with himself. With the connection established, his superpower manifested. He thought of all the words that could be acted on in that moment, and then thought of FREEZE.
@@ -83,7 +83,7 @@ Because Tamasha sees the gloss of reflection as a hole and uses it to see throug
 
 Reflection is a kind of copy. 
 
-The hole hides in the gloss because no copy can be perfect. The imperfections fail to register their content. They do not want to be seen as artefacts of low-resolution copying, they would rather be seen as natural occurrences, as freak distortions. When a copy realises that it is the manifestation of stray data, it immediately becomes suspect. Before and after, both times are tragic. After your eyes detune from the gloss, they become opaque. They do not have empathy anymore. They become merciless, hardened and unavailable. 
+The hole hides in the gloss because no copy can be perfect. The imperfections fail to register their content. They do not want to be seen as artefacts of low-resolution copying, they would rather be seen as natural occurrences, as freak distortions. When a copy realises that it is the manifestation of stray data, it immediately becomes suspect. Before and after, both times are tragic. After your eyes detune from the gloss, they become opaque. They do not have empathy any more. They become merciless, hardened and unavailable. 
 
 Tamasha looks into your cold eyes, carefully avoids looking at the arc of gloss (to avoid triggering a loop) and infuses humour into the blacks of your eyes. 
 
@@ -123,7 +123,7 @@ The history of reflection that each one of them holds, defines their character.
 
 Much like two equally sharp knives, one of which has been used for murdering someone and the other only to chop vegetables, are not equal.
 
-People who agree to everything are only blobs of gloss. they have nothing to hold on to. They blend into the landscape. Into the dullest part of the background. Once they blend in, their situation cannot be determined anymore. They are declared deluded. 
+People who agree to everything are only blobs of gloss. they have nothing to hold on to. They blend into the landscape. Into the dullest part of the background. Once they blend in, their situation cannot be determined any more. They are declared deluded. 
 
 If the weather is not good, only the trauma of the moment has the answer. And in this answer resides the reflection of the trauma too, as a tiny space of gloss. Gloss in a tear, for instance, has the capacity to be seen in a context of empathy and withdrawal. It is important to cry once in a while to experience this state.  
 
@@ -136,7 +136,7 @@ Tamasha was once roaming rather pointlessly in the wasteland behind his house. D
 
 "Take us to your reader."
 
-In reading, Tamasha's leader had given shape to the world. No, Tamasha's leader was Tamasha himself. As light has no hierarchy. But inspite of this fact, Tamasha did not break the sequence of conversation. He did not sabotage the process and he guided the figures to a palace. Went Inside, changed clothes and came out again wearing a manner suggesting leadership.
+In reading, Tamasha's leader had given shape to the world. No, Tamasha's leader was Tamasha himself. As light has no hierarchy. But in spite of this fact, Tamasha did not break the sequence of conversation. He did not sabotage the process and he guided the figures to a palace. Went Inside, changed clothes and came out again wearing a manner suggesting leadership.
 
 The figures could not recognise Tamasha and immediately started attending to business. 
 
@@ -166,7 +166,7 @@ At that point the only thing we could do is arrest a figure from the opposite sp
 
 After we had managed to reverse engineer the eye, we started working with the fabrication and the assembly. Only after we made the whole eye, could we isolate the lens, make it again and replace it. 
 
-After this whole process was over, we realised that the lens we had made had too much noise. There was so much artefact noise that people had to deal with that we were having to struggle. There was no fidelity of vision anymore. If we published something there was no guarantee that it would be seen in the same fashion by anyone else. The framework that governed vision was interpretive. There was a lot of potential for variation. 
+After this whole process was over, we realised that the lens we had made had too much noise. There was so much artefact noise that people had to deal with that we were having to struggle. There was no fidelity of vision any more. If we published something there was no guarantee that it would be seen in the same fashion by anyone else. The framework that governed vision was interpretive. There was a lot of potential for variation. 
 
 The leadership in Tamasha's head was appalled. This condition meant that all of visual culture had been rendered as a code. The eventual visual experience could neither be imagined nor approximated. There was no way of knowing what distortion existed in the onlooker's eye. 
 
@@ -186,7 +186,7 @@ Tamasha meditated on these questions till he could feel clearly what had to be d
 
 Tamasha decided to operate on the content of sight itself. What if in the act of seeing itself, the pixels of vision as well as the grid for parsing that vision, both were to be received? What if there was no learnt component of vision? What if the process of evolution were to be negated and a real time vision system were to be formulated?
 
-Tamasha infused himself into the world. Nature itself became a prototype for the new synthetic vision system. This vision system had no place for redundancy and familiarity. There was no active process of ageing anymore. Everything was always seen for the first time because abstractions were baked into the surface of the world itself. There was no code that also did not teach the onlooker how to decode it with the right tools and with sufficient time. These tools were purely a hardware specification and not experience or intelligence. 
+Tamasha infused himself into the world. Nature itself became a prototype for the new synthetic vision system. This vision system had no place for redundancy and familiarity. There was no active process of ageing any more. Everything was always seen for the first time because abstractions were baked into the surface of the world itself. There was no code that also did not teach the onlooker how to decode it with the right tools and with sufficient time. These tools were purely a hardware specification and not experience or intelligence. 
 
 Everything had become ready to pop at a moment's notice. This popping was recursive and not a singular event. If pop is all and all is pop, depth is denied.
 
@@ -199,7 +199,7 @@ In the moment that chilli stings, a disruption of experience occurs. A transitio
 
 Tamasha floods the buffer and breaks out. It always helps in the transition of experience if a given episode is truly a Tamasha and not a mimicry of one, nor a simulation.
 
-But we are getting ahead of ourselves. We moved from knowing Tamasha as the name of a person to Tamasha as a kind of experience that dazzles. The word literally means something close to the meaning of spectacle. We did get carried away with this connection, between the name and its meaning. Forgetting for a moment that when a word is accepted as a name, it can't be read as a word with a meaning anymore. A name is an identifier. Identifiers are not semantic. 
+But we are getting ahead of ourselves. We moved from knowing Tamasha as the name of a person to Tamasha as a kind of experience that dazzles. The word literally means something close to the meaning of spectacle. We did get carried away with this connection, between the name and its meaning. Forgetting for a moment that when a word is accepted as a name, it can't be read as a word with a meaning any more. A name is an identifier. Identifiers are not semantic. 
 
 Let's go back. 
 
@@ -211,7 +211,7 @@ When chilli is eaten, the channels communicating sensation to the mind explode. 
 
 When these channels are freshly formed, their capacity is expanded. This expanded capacity is like seeing more wavelengths of time than before, it is like thinking more the before. Any narrative is dangerous. Any continuity that implies a progression or a regression has the potential to be misread.
 
-With this expanded capacity of perception the spectacle cannot be ignored anymore. This persistence of spectacle is called tamasha. And it is not a name, not a property, not another word that splits hair over a small detail with the words already in existence. 
+With this expanded capacity of perception the spectacle cannot be ignored any more. This persistence of spectacle is called tamasha. And it is not a name, not a property, not another word that splits hair over a small detail with the words already in existence. 
 
 Chilli aids perception.
 
@@ -297,7 +297,7 @@ Batasha is a technical consultant for the company that runs the fleet of drones 
 
 Batasha, as well as others in the system saw their message as a pristine and distinct transmission from the control unit. Any change in the message was seen as opposition. Because this message was perfectly encoded to capture incident minds and bind them forever, any change in the message was seen as a weakness. The transmission media that the system used was transparent. Being transparent, the flood of light that fogged the channels became an aid in the training of the message to become tolerant to noise. This tolerance to noise allowed the transparent cables to gloss over the registration of any noise that was encountered. So material hiccups and the noise of vibration was largely ignored. 
 
-So Tamasha was seen as an outlaw of an order that was hellbent on control. There were numerous efforts to assassinate him, undermine him, malign him. But nothing worked. They could never get him. They remained in pursuit.
+So Tamasha was seen as an outlaw of an order that was hell-bent on control. There were numerous efforts to assassinate him, undermine him, malign him. But nothing worked. They could never get him. They remained in pursuit.
 
 Tamasha was always in the eye of surveillance. Although all his actions are known, his motives were a mystery. Why did Tamasha court attention? Why did Tamasha not attempt to cover his tracks?
 
@@ -307,7 +307,7 @@ Batasha lived a very measured and disciplined life. He woke up at dawn, did phys
 
 Tamasha was the only irritant. In his collection of objects, weapons which could kill abstract images with the same felicity as physical bodies were featured prominently. Day and night he thought of ways to exterminate Tamasha. There was no shortage of henchmen, but there was a fault in the process, there was something missing in the approach. Tamasha was not one individual with one vulnerable body, he was a catalyst of sorts. He was protected by all the bodies who basked in his light. To destroy him also meant destroying the Climax and destroying the dance she exhibited, so it also meant destroying Disaster. And these were all very difficult things. 
 
-So Batasha learnt to tolerate the corruption of the message that Tamasha represented. He talked his militant organisation to stop hunting for a flux that no one could put their finger on. A flux that was transient, light and unpredictable. As no one wanted to capture Tamasha anymore, he became a part of the construct that upheld the world. He came to symbolise the negative space of the message. Narrative that had no shape, density that had no form. 
+So Batasha learnt to tolerate the corruption of the message that Tamasha represented. He talked his militant organisation to stop hunting for a flux that no one could put their finger on. A flux that was transient, light and unpredictable. As no one wanted to capture Tamasha any more, he became a part of the construct that upheld the world. He came to symbolise the negative space of the message. Narrative that had no shape, density that had no form. 
 
 Batasha was the reward of disciplined narrative. This reward was accessible only by the actor who did not crave for adventure. In the absence of adventure lay only the predictability of the known and mapped. When Tamasha became institutionalised as the negative space of Batasha, a flitting in and out of the decorum of narrative became possible. There was room for manoeuvring.
 
@@ -325,7 +325,7 @@ Tone produced mundane sounds without betraying any emotion. He passed along the 
 
 The reward that Batasha offers is not one that guarantees long-lasting peace and satisfaction. It is a temporary calm, a trailer of a higher order of experience. But then what is the real thing? What is the higher reward that is being signified everywhere? And can that higher reward be achieved within the idea of this mortal life? 
 
-What Batasha offers is like a brief buzz. It is like intoxication, a high. After every high is a low. After every low is a question about the state of the world. Batasha encourages questioning. Questioning takes people towards Tamasha. Questions help in scraping off the dry crust off the wound. The woulds inflicted as a result of living within a constrained narrative. 
+What Batasha offers is like a brief buzz. It is like intoxication, a high. After every high is a low. After every low is a question about the state of the world. Batasha encourages questioning. Questioning takes people towards Tamasha. Questions help in scraping off the dry crust off the wound. The wounds inflicted as a result of living within a constrained narrative. 
 
 With every bit of crust that gets scraped off, a spectacle is arranged. With each scraping, there is a new influx of experience. Feelings never felt, thoughts never modelled. This novelty runs out of bounds for the sensorium and this running out of bounds is registered as a sensation, a tamasha. 
 
@@ -398,7 +398,7 @@ On investigation they figure out that the leak has sprung and now life can take 
 
 The nectar spread into the veins of civilisation then and and neutered the tide of disappointment and plainness.
 
-Batasha had to accept defeat and retreated from the field for the moment. He decided to mount another attack at the pirates who had smuggled access to the precious nectar. Take anything valuable and make it available to everyone, it is not valuable anymore. The idea of value is based on scarcity. 
+Batasha had to accept defeat and retreated from the field for the moment. He decided to mount another attack at the pirates who had smuggled access to the precious nectar. Take anything valuable and make it available to everyone, it is not valuable any more. The idea of value is based on scarcity. 
 
 Batasha started thinking of ways to control access to the nectar again. Ways to enforce the web of encryption again.
 
@@ -427,7 +427,7 @@ The distaste with which the suppressed elements ticked off the juvenile delinque
 
 In the outhouse of the city, huddled together by a mistake or a chance were Aba and Kua. Now, Aba and Kua would normally have never met each other. Aba was a professor's son and Kua was an activist's granddaughter. But Aba was trying to break free of the ropes that held him together and Kua was trying to find a scaffolding that would hold her firm. In the sequence of narrative justice they were a perfect match. Aba and Kua managed to escape the duality of for and against, the enclosed and the forsaken. They went their own way. They lived like primitive apes at the edge of civilisation and they died in each other's arms. But they had a reason to be thankful to the new order. They would never have met each other if the old world had continued. The earlier narrative had to end for a new one to begin. In the years that they lived they celebrated the new order. But that was not enough to allow them back in the folds of the world. Their eyes still reflected the smoke of dreams and the mischief of laughter. They were ostracised. 
 
-This jumbling up of the world was celebrated by the outsiders of the earlier circuit too. They felt that now that the bubble had burst, no one would be able to bask in the glory of controlled fireworks anymore. The envy of the community that had to stand outside the glass door and stare in reflected in the witch-hunt that ensued. They became converts, turncoats for whom the nihilism was as pleasuring as it was for the new overlords. They became the inadvertent trophies of the regime — "We have so many painters of diffused sunsets on our side, those who are criticising us are either dead or biased or both. We do not have any shades of black in our persona. We are angel dust."
+This jumbling up of the world was celebrated by the outsiders of the earlier circuit too. They felt that now that the bubble had burst, no one would be able to bask in the glory of controlled fireworks any more. The envy of the community that had to stand outside the glass door and stare in reflected in the witch-hunt that ensued. They became converts, turncoats for whom the nihilism was as pleasuring as it was for the new overlords. They became the inadvertent trophies of the regime — "We have so many painters of diffused sunsets on our side, those who are criticising us are either dead or biased or both. We do not have any shades of black in our persona. We are angel dust."
 
 Thus the long tradition of thinking was broken. Those in power changed the way education worked across the country. Liberal ideas and principles were replaced with a vacuum. The capacity to see anything from a distance, see its ramifications modelled as a story and do the needful was lost. Pragmatism ruled and became the single most important pillar of logic. 
 
@@ -438,17 +438,17 @@ Again the world was at the brink of disaffection, and no amount of the politics 
 In that moment they realised what the progress that they were celebrating was at the cost of. They shed tears, but it did not help. They mourned, but it did not help. They could not turn back time and they had to live for a long time without any cheer.
 
 ### Void
-The void is the bracket of inconsolable time in which Tamasha and Batasha both lost their way. When their inability to counter each other ushered in the new order that stripped the world of lyric and melody, they resigned their positions. They decided to rift and drift. They could not balance the polarities of the world and hold it in balance anymore. 
+The void is the bracket of inconsolable time in which Tamasha and Batasha both lost their way. When their inability to counter each other ushered in the new order that stripped the world of lyric and melody, they resigned their positions. They decided to rift and drift. They could not balance the polarities of the world and hold it in balance any more. 
 
 When both of them got lost, they started spending a lot of time together. They got united. The world in which Tamasha and Batasha were united was very confused. Confusion is a short-circuiting, a unity of polarities.
 
 In this confused world, the delusion that led everyone astray was that of emptiness. Everything seemed to be hollow, there was no mass, no content, no containment in anything. In this empty world, people were sad. They were nostalgic of the times when figures and concepts occupied the emptiness. The time when the voids were filled. 
 
-A sadness hung in the air then. This sadness mourned the loss of content and volume. But this mourning was not very intense because everyone knew that they had to come back to the cold shoulder of a void. There was no point in getting lost in grief, if there was no possibility of recovery anymore. The new production that transpired evaporated immediately. It did not stick. It did not enter the course of narrative and history. The void was very divisive. It was like a non-stick pan. There was no possibility of any emergence anymore. Because emergence happens out of stacks of accumulation and accumulation is constructed from a layering of material. And layering had stopped. 
+A sadness hung in the air then. This sadness mourned the loss of content and volume. But this mourning was not very intense because everyone knew that they had to come back to the cold shoulder of a void. There was no point in getting lost in grief, if there was no possibility of recovery any more. The new production that transpired evaporated immediately. It did not stick. It did not enter the course of narrative and history. The void was very divisive. It was like a non-stick pan. There was no possibility of any emergence any more. Because emergence happens out of stacks of accumulation and accumulation is constructed from a layering of material. And layering had stopped. 
 
 The stark flatness of the void was almost blinding. 
 
-With the blinding nature of the environment, no vision remained anymore. Every perspective went bust.
+With the blinding nature of the environment, no vision remained any more. Every perspective went bust.
 
 A monopoly of the narratives of the world took over. This monopoly was clear and sparse as it was isolated and singular. In its singularity it could offer only what the world already had. And that was the emptiness.
 
@@ -484,4 +484,4 @@ As if consciously programmed, both Tamasha and Batasha simultaneously rose and c
 
 Everything seemed to be the same as it was before. But the dynamics between the two poles had changed. Instead of role-playing the hunter and the hunted they became aware of their inter-dependence and learnt to collaborate. Polarities do not necessarily need to be opposite; they can also be a part of a tactical plan to balance a force. It can be seen as the delegation of responsibility also.
 
-In the world that was balanced anew, there was no flip side. Stories did not have to carry around the mirror opposite of their narrative. No balance needed to be struck because there was collaboration across the board. There was no absolute anymore, everything was realised to be a dirty shade of grey.
+In the world that was balanced anew, there was no flip side. Stories did not have to carry around the mirror opposite of their narrative. No balance needed to be struck because there was collaboration across the board. There was no absolute any more, everything was realised to be a dirty shade of grey.

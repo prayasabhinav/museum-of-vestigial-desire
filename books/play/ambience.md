@@ -33,4 +33,4 @@ Ambient environments cannot be thought of as passive backdrop to some centre-sta
 
 Ambience gives clues.
 
-With ambient clues, players get the impetus to carry forward with the game. When players start unraveling clues and attempt to fit them into their solution of the puzzle. Puzzle-solving is an important way to thrust game narratives forward. When puzzles don't move forward, the static has to dealt with as a kind of trauma. This trauma of stuck puzzles has a sound-scape that becomes a part of the ambience.
+With ambient clues, players get the impetus to carry forward with the game. When players start unravelling clues and attempt to fit them into their solution of the puzzle. Puzzle-solving is an important way to thrust game narratives forward. When puzzles don't move forward, the static has to dealt with as a kind of trauma. This trauma of stuck puzzles has a sound-scape that becomes a part of the ambience.

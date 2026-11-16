@@ -7,7 +7,7 @@ tags: ["sand"]
 
 # Etiquette
 
-Etiquette is a series of patterns link fragments of behavior to render a grand narrative and offer it back. These patterns are influential and significant enough to cast their shadow in a very binding way. That these patterns are just extrapolations of voluntary behavioural items is a lost detail. Instead, these patterns masquerade as absolute guidelines which on not being followed exactly would lead to some kind of corruption at a very basic level that will lead to rejection and ostracisation. 
+Etiquette is a series of patterns link fragments of behaviour to render a grand narrative and offer it back. These patterns are influential and significant enough to cast their shadow in a very binding way. That these patterns are just extrapolations of voluntary behavioural items is a lost detail. Instead, these patterns masquerade as absolute guidelines which on not being followed exactly would lead to some kind of corruption at a very basic level that will lead to rejection and ostracisation. 
 
 Following the guidelines established by etiquette out of fear and not a genuine understanding or acceptance of their significance leads to the emergence of a fearful social flux. Fear is not a productive mood to operate with. It easily gives in to this control-society that is structured on the implementation of principles laid down by somebody invisible. A highly structured society works on invisibility and delegation as models of implementing power structures. 
 

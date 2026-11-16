@@ -7,7 +7,7 @@ tags: ["glass"]
 
 # Alarm
 
-How do we know that we have been compromised? What if someone curses us silently and then we come under a spell? We will then behave like a zombie and not have any capacity for independent action anymore. We have to set alarms. 
+How do we know that we have been compromised? What if someone curses us silently and then we come under a spell? We will then behave like a zombie and not have any capacity for independent action any more. We have to set alarms. 
 
 We have to survey our perimeter and embed alarms at all our open ports. Whenever something breeches the perimeter the alarm will ring. 
 
@@ -19,7 +19,7 @@ So alarms are important. We need to understand that 'prevention is better than c
 
 Contamination is death. 
 
-Foreign narrative is not bad but it takes us away from self-absorption. We value our self-absorption because if we think of anyone else than ourselves, we won't ever be able to do anything anymore. 
+Foreign narrative is not bad but it takes us away from self-absorption. We value our self-absorption because if we think of anyone else than ourselves, we won't ever be able to do anything any more. 
 
 We want to curse but we also we will be cursed. We know. This is certain. Somewhere along the way, somebody someone will  curse in a more potent verbiage than us. Our nastiest, our most virulent, most passionate curse will only pale in comparison. We live in the shadow of that moment.
 Every fire must cool and come alive again.

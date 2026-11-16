@@ -7,7 +7,7 @@ tags: ["ritual"]
 
 # Nudity
 
-It is a social taboo to expose the nude body publicly. Shrouding everything in clothes is considered the norm. Even statues of dead people, who are literally ghost entities now, wear bronze clothes. At least the dead should be allowed to be depicted in the nude, like they came and like they went. At least after death the scars and distortions of the body should not be a secret anymore. 
+It is a social taboo to expose the nude body publicly. Shrouding everything in clothes is considered the norm. Even statues of dead people, who are literally ghost entities now, wear bronze clothes. At least the dead should be allowed to be depicted in the nude, like they came and like they went. At least after death the scars and distortions of the body should not be a secret any more. 
 
 But more than just the nudity of the body, society has a problem dealing with nudity in all forms. Naked emotion, naked desire, naked ambition, naked beauty. Cloaking is considered much more proper. It remains the standing recommendation at the city gates. Packaging within packaging, bags within bags. 
 

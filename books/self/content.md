@@ -35,7 +35,7 @@ That is the only content that is interesting and appropriate for you to have.
 
 This content has a high degree of identification with your body-mind organism and your world view.
 
-This content has an absolute unshakeable nature. There will be no option anymore. There will be nothing more for you to offer to the world.
+This content has an absolute unshakeable nature. There will be no option any more. There will be nothing more for you to offer to the world.
 
 This is how we operate.
 

@@ -41,7 +41,7 @@ Hero does not like E's mother. When she comes he goes and sulks in a corner. E d
 
 E used to have a lot of friends. But now she just has voices in her head. One such voice is M. M speaks up the most often and E actually waits for the moments. "M talks like a lost friend as well as a potential adversary. I do not understand how he manages that."
 
-E and her mother did not speak a single word. E secretly did study her mother in ways that her gaze would remain hidden. She studied her mother's practiced finger movements as she put morsel after morsel of the khichdi into her mouth. She had moved away from her mother in a rather forceful manner. On a day three years back E had asked her mother to let her stray from the path. In those days, well before the war broke out, the television was innocent, entertaining and full of advertisements. It provided a lively backdrop to all dull homely conversations. "Reaching out to mother was always over and above the din of television. There was no notion of silence, media provided the enduring hiss of noise." Mother switched the television off and asked me to repeat my question. 
+E and her mother did not speak a single word. E secretly did study her mother in ways that her gaze would remain hidden. She studied her mother's practised finger movements as she put morsel after morsel of the khichdi into her mouth. She had moved away from her mother in a rather forceful manner. On a day three years back E had asked her mother to let her stray from the path. In those days, well before the war broke out, the television was innocent, entertaining and full of advertisements. It provided a lively backdrop to all dull homely conversations. "Reaching out to mother was always over and above the din of television. There was no notion of silence, media provided the enduring hiss of noise." Mother switched the television off and asked me to repeat my question. 
 
 "She never answered my question. She just looked away. For me it was important to ask her. For our bond with our parents is like a clot of blood: it has to be dissolved away, to clear the flow. Else it can become cancerous"
 
@@ -85,7 +85,7 @@ Tiny blue flowers sometimes bloomed in the window-sills in the lobby, as a mutat
 
 E had seen the flowers once and she first thought that somebody is playing a trick. She thought that the shiny happy people want to capture even the possibility of hope, that they want to control even the possibility of escape.
 
-When air cannot circulate anymore, pockets and bubbles develop. These pockets give shelter to the friction that gets captured in episodes of listening. This friction gives birth to new voices. "This is how M came into my life."
+When air cannot circulate any more, pockets and bubbles develop. These pockets give shelter to the friction that gets captured in episodes of listening. This friction gives birth to new voices. "This is how M came into my life."
 
 ## Four
 
@@ -125,9 +125,9 @@ M, "i am not a subset of you. You are my shelter, my refuge. Any relationship th
 
 Painting visuals is an affliction for E, she does not know how to do that. She fumbles, forgets details and is generally not eager to do it. You might call her lazy and deprived, but that is what she was. Her projections of M were low-resolution.
 
-The air smelled of impatience and anxiety in the day sometimes as the sentiment of the delusory war being performed on the street was infectious. It traveled up like the smell of the wasted gunpowder. Standing in the window, E & M felt a very strong urge to escape as they breathed in. But escape had been rendered impossible and difficult by the shiny happy people. Where would anyone go? There was no horizon. Instead of the horizon there was a cloud of smoke and impenetrable noise. Even to look so far away as the point where the earth met the sky, any potential escapee would need to emerge from the shroud of heaviness that they lived within. 
+The air smelled of impatience and anxiety in the day sometimes as the sentiment of the delusory war being performed on the street was infectious. It travelled up like the smell of the wasted gunpowder. Standing in the window, E & M felt a very strong urge to escape as they breathed in. But escape had been rendered impossible and difficult by the shiny happy people. Where would anyone go? There was no horizon. Instead of the horizon there was a cloud of smoke and impenetrable noise. Even to look so far away as the point where the earth met the sky, any potential escapee would need to emerge from the shroud of heaviness that they lived within. 
 
-The internal dialog of E and the internal-external dialog that E had with M, were signs that her world was stretched to its limits. In a life lived in isolation, what was the need to talk? Long after stories are exchanged, long after episodes are retold and perspectives are exchanged, are there still things left to talk about? Is philosophy dependent on narrative? If someone is returning home from a funeral and you go and and ask them why they are not happy, it is just not fair. People live in the aftermath of things that happens to them. "There is nothing to be done."
+The internal dialogue of E and the internal-external dialogue that E had with M, were signs that her world was stretched to its limits. In a life lived in isolation, what was the need to talk? Long after stories are exchanged, long after episodes are retold and perspectives are exchanged, are there still things left to talk about? Is philosophy dependent on narrative? If someone is returning home from a funeral and you go and and ask them why they are not happy, it is just not fair. People live in the aftermath of things that happens to them. "There is nothing to be done."
 
 Because there is nothing to be done, there is no way for conversations to end. Conversations which have begun once, go on forever. After a point, when too many conversations are operating in parallel, some start fading away. Time and talk both accumulate in layers. As people grow older, they grow quieter. But they never stop talking. If nothing else, they just talk about things that they have talked before.
 
@@ -149,7 +149,7 @@ She was relieved at the same time as she was taken aback. Relieved at the fragil
 
 "I couldn't hold silence any more," said X softly.
 
-The ambiguity of experience has to be experIenced. Things happen and after that we figure out what has happened. There is no way of knowing what will happen.
+The ambiguity of experience has to be experienced. Things happen and after that we figure out what has happened. There is no way of knowing what will happen.
 
 E seemed sedated on the surface, but her mind was concocting images for her consumption. At any given time, she saw two parallel visual tracks. One track showed her what was in front of her and the other track showed her what she wanted to see. The fictional track was solely composed of symbolic references. The fictional track lent itself to analysis.
 

@@ -13,7 +13,7 @@ Transactions cannot be rituals.
 
 If transactions are rituals then they might as well not take place. Transactions are not rituals.
 
-Layers of our experience as well as our own psyche rely on the actualisation of certain transactions. If something happens, you witness it happening, but no refraction is actually experienced then nothing has happened for you. Experience cannot be parsed after the fact of the unraveling of the present. There is loss involved in experience. We do not know everything that is happening. We only know a specific range of it. 
+Layers of our experience as well as our own psyche rely on the actualisation of certain transactions. If something happens, you witness it happening, but no refraction is actually experienced then nothing has happened for you. Experience cannot be parsed after the fact of the unravelling of the present. There is loss involved in experience. We do not know everything that is happening. We only know a specific range of it. 
 
 Refraction is not entirely a rational process. In terms of experience we do not need to know why it occurs. For our purposes it is sufficient to know that it has occurred. Subsequently we only need to acknowledge the situation that we are in after the refraction has occurred. At a subtle level, the nature of our being gets altered. This not the high point of the potential of experience. This is our minimum expectation. If we do not get moved, nothing has happened. 
 

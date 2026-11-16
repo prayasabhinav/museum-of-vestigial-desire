@@ -19,4 +19,4 @@ We help our customers get tuned to that which has no parameter in representation
 
 Our shop cannot do without us. This shop needs us to haunt its alleys in order to be any kind of shop at all. Because the real estate in this shop is finite, the only way that this shop can double-up as a factory is by running a school for reading unstated languages for its potential customers. Learning to decipher the transparent is the sole project here and it is very important. Once the garb of transparency is exposed, the amount of information available to process is likely to be overwhelming. 
 
-But then shops turn into factories and factories turn into catalogs.
+But then shops turn into factories and factories turn into catalogues.

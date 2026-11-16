@@ -11,7 +11,7 @@ Curses are masks. Masks hide something and reveal something else. This temporary
 
 Masks help in executing complex discussions under the front of abstraction. It might seem to someone not familiar to the pragmatics of discussion in the room that the topic under discussion is coffee. But in reality a complex battle formation involving a massive cost and thousands of lives is the current engagement. Abstraction helps to de-sensitise discussions. It helps to divert the overbearing sentiment towards rational argumentation and away from sentimental brooding. 
 
-That leaves us in a difficult position. We do not know what to do with our emotion anymore. Emotion is a problem because we have not been trained to deal with it. We have been trained to understand emotion as a deterrent to rational thought. On the contrary it is a lens that aids the complex perception of ideas that otherwise will never be perceived at all. 
+That leaves us in a difficult position. We do not know what to do with our emotion any more. Emotion is a problem because we have not been trained to deal with it. We have been trained to understand emotion as a deterrent to rational thought. On the contrary it is a lens that aids the complex perception of ideas that otherwise will never be perceived at all. 
 
 The absence of emotion from our cognitive apparatus has led us to a difficult point in our evolution. We produce anger, irritation, fear, confusion and other artefacts of a troubled mind because we are basically starved of emotion. Nothing touches us because we are stuck on a dry piece of land and we do not know how to swim. We need swimming lessons. 
 

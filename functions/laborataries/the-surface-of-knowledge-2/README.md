@@ -15,13 +15,13 @@ Does that make you feel like you have devoted your attention to a construct that
 
 Well, that is all that is available. Everything is shakeable. There is always distance to travel. 
 
-One of our limitations has been that we have thought about the moment as a minute duration. Durations are never singular. Even if minute. There are always parallel sequences of unraveling that render all durations in a format greater than singular. 
+One of our limitations has been that we have thought about the moment as a minute duration. Durations are never singular. Even if minute. There are always parallel sequences of unravelling that render all durations in a format greater than singular. 
 
 Construing experience and the knowledge that emanates from it as flat is one thing, but construing it as a ceaseless duration which can only be accessed through slices is another.
 
 This duration is disrupted by many aspects of our behaviour. When we get immersed in anything, we lose everything. 
 
-But we are not cataloging all our disruptions here, we are only adding facets which will make it possible to hold our experience of the surface. We are keen to hold and not just get a fleeting glimpse because we do not want to live basking in the memory, we need to live in the midst of the experience. 
+But we are not cataloguing all our disruptions here, we are only adding facets which will make it possible to hold our experience of the surface. We are keen to hold and not just get a fleeting glimpse because we do not want to live basking in the memory, we need to live in the midst of the experience. 
 
 Also we are realising, having a text that is universal is fine because that is a very broad frame we need to examine the fine detail and the broad perspective at the same time. We cannot put anything into practice unless we are thus split between the micro and the macro. In isolation everything will seem simpler. But in unity what happens? What happens when there is no possibility of pulling things apart. We want to think about each idea that we consider within the scope of what is involved in implementing them into our waking life. Our life in slumber is anyway more efficiently pre-scripted to leave us free from interjecting with a set of choices. Why can't we sleep all the time? Why do we need to wake up at all? If the act of seeing something related to our eyes, then how do we watch dreams with our eyes closed? 
 

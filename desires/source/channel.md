@@ -23,8 +23,8 @@ Channels are our saviours.
 
 How do channels operate? How do they get to do what they do? How are they chosen and how do they negotiate a border with the spirits they allow access to their body? Borders demarcate with time and content-based tags, who gets to speak when. These borders are not respected of course, but the lattice of the points demarcating a border help perform a distance even if there is none. 
 
-An infected body, that is a body that has entered into a channeling agreement with a spirit, has no control. In the middle of any conversation, in the middle of any thought, if the spirit has something to say it will just say it. Not bound by tact, meaning or continuity can be very liberating. 
+An infected body, that is a body that has entered into a channelling agreement with a spirit, has no control. In the middle of any conversation, in the middle of any thought, if the spirit has something to say it will just say it. Not bound by tact, meaning or continuity can be very liberating. 
 
 After a point, infected bodies are able to talk to themselves and treat conversations and sometimes sociality itself as a reflective surface. Conversations are furthered by people who allow you to project anything on them and then conversing with that projection.
 
-Agreeing to be a channel is firm commitment, it is difficult to get out of it after a point. From being an individual in isolation, you become a shared instrument, a shared room. It becomes at the same time the easiest way to stop identifying too much with your room as a personal space and more as a shared room with traveling tenants.
+Agreeing to be a channel is firm commitment, it is difficult to get out of it after a point. From being an individual in isolation, you become a shared instrument, a shared room. It becomes at the same time the easiest way to stop identifying too much with your room as a personal space and more as a shared room with travelling tenants.

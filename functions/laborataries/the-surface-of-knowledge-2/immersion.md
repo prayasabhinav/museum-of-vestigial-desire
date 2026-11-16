@@ -15,6 +15,6 @@ We will not chronicle more questions. We will proceed to expand on what we can. 
 
 What we know as single-minded focus is actually this moment of alignment. 
 
-This alignment is the rare movement within the thicket of our narrative, in which there is a bias in the system that supports our desire. This alignment can't be caused. But it can be felt. Experienced actors are able to feel their way into a state of flow. Feeling is an action that makes the actor sensitive. This sensitivity can be practiced. 
+This alignment is the rare movement within the thicket of our narrative, in which there is a bias in the system that supports our desire. This alignment can't be caused. But it can be felt. Experienced actors are able to feel their way into a state of flow. Feeling is an action that makes the actor sensitive. This sensitivity can be practised. 
 
 Practice is a state of immersion which has a long term engagement. It is possible to remain immersed in one's practise across decades. This is where immersion and duration become related. It is possible to establish a practice in the matter of a few seconds, if the duration of immersion is intense enough. It is rare, but it can happen. Again it cannot be wished for. It can only be part of an arsenal of tactics that one knows to identify if and when it occurs.

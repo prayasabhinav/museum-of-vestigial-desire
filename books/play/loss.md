@@ -13,9 +13,9 @@ Loss is a result of the actions of self-initiated fallacies. So loss takes a tol
 
 How is loss ascertained?
 
-When you have something and then you do not have it anymore then it is accounted for as a loss. 
+When you have something and then you do not have it any more then it is accounted for as a loss. 
 
-When the set of elements that we think of together when we contemplate on our self changes in any way, we have to perform an operation of re-calibration. When the set reduces, our re-calibration effort has to deal with dead spaces, with ghosts and account for things which are not present anymore so that on the whole we can manage to be the same. Our self tries best to remain the same as much as possible. There is insurmountable inertia. 
+When the set of elements that we think of together when we contemplate on our self changes in any way, we have to perform an operation of re-calibration. When the set reduces, our re-calibration effort has to deal with dead spaces, with ghosts and account for things which are not present any more so that on the whole we can manage to be the same. Our self tries best to remain the same as much as possible. There is insurmountable inertia. 
 
 When we have to go through a loss, we have to struggle to fabricate faux elements to keep our sense of self more or less stable.
 

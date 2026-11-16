@@ -17,6 +17,6 @@ So we are searching for the roots of the tendencies that emerge and then bloom i
 
 In this search we do not want to get obsessed with an analytical perspective. Because, analysis only unravels a poetic explanation for expressed behaviour. The view of analysis dictates that the interior is a deep and dark place that holds all the answers. 
 
-But we hold that depth is impossible and inexplicable. The content on the surface and in some invisible interior area cannot be dissimilar, it has to be one. If it is different, then two surfaces need to be modeled. And all duality is impossible. If the hold on the essential unity has to be maintained then the content on the surface is the only content. 
+But we hold that depth is impossible and inexplicable. The content on the surface and in some invisible interior area cannot be dissimilar, it has to be one. If it is different, then two surfaces need to be modelled. And all duality is impossible. If the hold on the essential unity has to be maintained then the content on the surface is the only content. 
 
-And so analysis has to be remodeled. It has to replace the idea of the deep inside with the secrets with techniques for a study of what is on the surface.
+And so analysis has to be remodelled. It has to replace the idea of the deep inside with the secrets with techniques for a study of what is on the surface.

@@ -17,7 +17,7 @@ Follow me. There are tiny animals in front of you. Reptiles. There is elaborate 
 
 Follow me again. You are courting someone. Her face changes everyday, everything else remaining the same. You learn to graph one set of expressions and moods and then another and then another. But you always learning, analysing. There is no time to act, there is no time to move to second base. 
 
-Into this idea we can paint in a lot of pictures. You are playing a game. But your playmate keeps interrupting and declaring victory. No reason, just like that, "I win." What's to be done, what do you tell him. That he should slow down, that he should wait for the game to be over? The moment the game is over she is not your playmate anymore. So technically she can't win, she can only retrospect over a past victory.
+Into this idea we can paint in a lot of pictures. You are playing a game. But your playmate keeps interrupting and declaring victory. No reason, just like that, "I win." What's to be done, what do you tell him. That he should slow down, that he should wait for the game to be over? The moment the game is over she is not your playmate any more. So technically she can't win, she can only retrospect over a past victory.
 
 And then someone made a movie that went on forever. It just went on and on. As the reel sixty-four was being screened, the team was shooting the reel hundred. It went on and on, after the actors were too old to act, their children replaced them. People spent their entire lives watching the single movie. And still it never made sense to them, it just kept growing in every possible direction. This movie was dangerous, people lost their hard on just thinking about it. 
 

@@ -7,7 +7,7 @@ tags: ["amnesia"]
 
 # Performance
 
-We realize that performance and the script are related in an inseparable way. Unless you script, it will not be experienced. Experience depends on a kind of stating and scripts somehow manage to state. Stating does not mean closing all possibilities for emergence. Brackets can be stated, explosives can be embedded. The landscape is for being taken. It does not exist for any other reason. 
+We realise that performance and the script are related in an inseparable way. Unless you script, it will not be experienced. Experience depends on a kind of stating and scripts somehow manage to state. Stating does not mean closing all possibilities for emergence. Brackets can be stated, explosives can be embedded. The landscape is for being taken. It does not exist for any other reason. 
 
 When empty brackets are stated, the performer and the script need to have a degree of trust between them. When we recently performed a piece, this did not happen. Some of the performers were alien to our intent. There was no trust. So some of the performance did not work. But some of it did.
 
