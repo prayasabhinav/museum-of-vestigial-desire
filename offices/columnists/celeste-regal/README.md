@@ -10,3 +10,5 @@ Celeste Regal is a working artist specializing in book art using the codex forma
 Extraneous Exteriors presents ontologies of physical substances connecting thought, idea and transition. Often an image correlates in some way with text but it is not always the case. What we see is always mitigated by what we hear and know; fluid possibilities challenge being and not being. In the stream of time, all things are possible but not probable. Where we are is a tricky thing since what is and what is appear debatable in any given context. 
 
 Narration, or storytelling, is the main coercive fact of existence. Whether it is true or not true begs the issue of life among the human race. The things we make express conundrums of what we think since they are an alchemical mixture of real and fantasy. The story is in the material while the material is not always in the story.
+
+*Published as part of our columnist project. The texts were published as is.*

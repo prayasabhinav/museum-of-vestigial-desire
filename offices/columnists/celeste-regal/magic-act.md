@@ -19,3 +19,5 @@ We wonder where we are in all this, if the object determines the self. Who is ri
 In the clearing, someone planted trees that 30 years later house tigers and elephants in a merciless terrain now made fertile, luscious. One person did this with the support of family. In another part of the world, someone tells tales of the clean up properties of mushrooms that eat away toxic material. A small industry is formed to relieve an overburdened world. 
 
 Magic happens every day across continents, hidden behind the trumpets and glitz. Little miracles give hope and renewed belief in the human condition that so easily goes astray. Sitting in a quiet spot, pondering silver linings, has power and agility. We can dance with the alchemists and make lead into gold.
+
+*Published as part of our columnist project. The texts were published as is.*

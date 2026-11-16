@@ -22,3 +22,5 @@ Build a giant bird, and set it ablaze. Keep a perpetual fire burning in a hovel 
 Prevaricate. Procrastinate. Masturbate.
  
 All methods of mastery fail. Now retreat to the back of the cabinet. Pull up a chair. Extinguish the barren solicitude of empty reproach. Shine a spotlight on the distorted gears, scattered stems, clasps, pins, gaskets and crowns. They too are liable to come apart. Slowly begin the process of reconstitution. And remember, amidst the lurches and drops, empty gaps and vast distances, even time needs a keeper.
+
+*Published as part of our columnist project. The texts were published as is.*

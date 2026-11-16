@@ -45,3 +45,5 @@ How to get your watercraft into the sea? This is a list of options I've seen rec
 <br/>
 
 I would give some helpful advice about how to negotiate the transition, but I have not been in the ocean for twenty years now.
+
+*Published as part of our columnist project. The texts were published as is.*

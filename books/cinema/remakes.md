@@ -19,9 +19,9 @@ If all cinema was a cinema of remake. If stories existed in singular.
 
 Remakes try to reinvent the story. They work on the content too much. When all cinema is a remake, the craftsmen of cinema will be forced to withdraw and work exclusively on the lens as the force field of their practice. The lens is all that will remain after nothing else remains. The innovation of cinema will be reduced to the pursuit of the optical innovation of the lenses. 
 
-Lenses are elements of glass that allow you to see the world in different ways. Looking at the world in any isolated way is a function of the lens. Lenses do not necessarily need to be made of glass. They can be made of code, they can be mode of a perspectival bias.
+Lenses are elements of glass that allow you to see the world in different ways. Looking at the world in any isolated way is a function of the lens. Lenses do not necessarily need to be made of glass. They can be made of code, they can be made of a perspectival bias.
 
-Filmmakers can be craftsmen known in their cliques for the specialised lenses that they have in their collection. These lenses will be closely guarded like trade secrets and will become important tools for establishing a craft. A filmmaker's life will be spent in putting together an arsenal of lenses which can deployed as and when needed.
+Filmmakers can be craftsmen known in their cliques for the specialised lenses that they have in their collection. These lenses will be closely guarded like trade secrets and will become important tools for establishing a craft. A filmmaker's life will be spent in putting together an arsenal of lenses which can be deployed as and when needed.
 
 A filmmaker without lenses will be quite poor.
 

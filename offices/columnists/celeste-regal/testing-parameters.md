@@ -32,3 +32,5 @@ In these terms, the surface maintains a shelf life. It is a connection of variab
 Silence falls from memory as a new arena spurts from hampered practices, interrupted by too many footnotes. Structures of faulty products are lamented daily. We insulate with fast, practiced essays of despair on social media constructs, leaving a wake of unaddressed theses. Leaky enclosures entice us to respond with solutions, to include public testament, but in the end it becomes difficult to decipher. Are we saying anything of value and is anyone listening? Does chatter matter, or like paint to canvas become a lovely thing to look at from the right angle? 
 	
 When the sun rests on a live thing to marvel at, we forget all these ponderings. Rejuvenation prevails in the face of bright reality checks – a delightful deception of the space-time continuum. The Three-card Monte tosser laughs in the shadows unnoticed.
+
+*Published as part of our columnist project. The texts were published as is.*

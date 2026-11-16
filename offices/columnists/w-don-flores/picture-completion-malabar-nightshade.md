@@ -40,3 +40,5 @@ Each with acute stresses on the third syllable. I voice the names that way as we
 
 
 _Tree. Ring. Off._ Mouthing the words is a signing of my own name back to myself. I attempt to do this under someone else’s tongue and coach myself patiently until I can manage the syllables. It has a taste that never quite reaches the back of my throat because I retch the words out again and again never swallowing.
+
+*Published as part of our columnist project. The texts were published as is.*

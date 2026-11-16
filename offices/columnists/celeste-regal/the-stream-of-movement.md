@@ -32,3 +32,5 @@ It becomes as everyday as the place you left, only quite different. You must nav
 You will find that going is also starting over. You may have forgotten how much that entails while in the (maybe) comfortable situation you recently left. There was a routine. Actions you could count on to make things bearable. Signs that let you know all was well (or not). You find your knowing is a kind of protection; a way to make sense of the chaos around you, to make sense of the other beings around you; to place you in the stream of time and the field of comfort. This is what we seek whether we acknowledge it or not.
  
 In the end, there is no end; only a reconfiguration of comfort, knowing, coming, going–a circle into infinity where the mind adjusts the body’s demands.
+
+*Published as part of our columnist project. The texts were published as is.*

@@ -37,3 +37,5 @@ i expose new skin.
 
 my shell is scratched.
 i must resurface.
+
+*Published as part of our columnist project. The texts were published as is.*
